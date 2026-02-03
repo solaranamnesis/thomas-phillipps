@@ -655,3 +655,79 @@ Sumis aurum, et mittis in vas novum, et adicis fel taurinum; obtera diebus 3. et
 ## 69\. (_De vitri coctione._)
 
 Sumis vas vitreum, solidum, cavum, quod mortarii formam habeat, caraxas mirio de lapide, omnem ejus curvaturam subradens, in formam 10. littere. Pone cinerem, unde vitrum conflari debeat, in conflatorium, et asperges sanguine draconis crudo. Si autem crudum habere non voles, fac ex albumine ovorum, et succo visci medicamen, et in eo sanguine cinerem asperge, et sic excoque. Coctum, autem, cum in vitrum velis producere vas ad cujus debeat formam produci, item eodem sanguine delini, sicque factum, scias vitrum fragile in naturam fortioris metalli formari. Rumpere tamen hoc modo potes. Accipe sanguinem galli, et tere cum eo lapidem celidonium, admixta urina, cum toto lotio singularis non ammixto, addes etiam dragantum, et omnia simul mixta immitte in illud vas vitreum; et videbis artem, et ingenio vinci ingenium. Item, hoc ipsum, si in vas plumbeum vel stagneum miseris, solidatur ut es vel ferrum, tamen sine sanguine galli.
+
+## 70\. Idem, (_id est, auri scriptio_) quasi decus.
+
+Facias vas asperum, et quasi limatum; deinde mittis mel Atticum, deline aurum quod produxeris in avene modum, leviter circumfer manum, et, cum confricatur, leve fiat. Deinde postquam omne aurum, vel quanta volueris ejus pars, fuerit attrita, adice aquam melli et collue subtiliter, et liquato melle, invenies suhsidere aurum liquidum, et line. In hoc, igitur, quod residebit, adice sufficienter gluten taurinum, vel icciocollam,* vel gummi, quod te habere in vase propter usus oportet. Hinc itaque litteras scribe, et signa; oblinis et tecta subungis, et omne, quod volueris, aureum apparebit, vel cum unxeris, vel scripseris; et, cum siccaverit, dente frica, ut delinitum splendidum appareat. Hoc verò consilio, et ferrum, et plumbum, et eramentum solvis, et scribe, et inungis quod vis.
+
+*) Pro "icthyocollam."
+
+## 71\. (_Item, auri scriptio._)
+
+Plumbum sepius liquefacis, et in aqua diffundis; et, cum hoc frequenter feceris in eadem aqua ubi plumbum refundis, exempto plumbo, confla aurum, et ibi dimitte. Frangitur enim in minutissimas partes; has tolle, et teris, et solvitur: huic adicis glutinis suprascripti quantum volueris; et utere ad que velis. Quod, verò, in ultimis arboris cavernis gummi invenitur, in his que deaurautur vitreis, si ante eo ungantur, bene retinet aurum.
+
+## 72\. (_Argenti confectio._)
+
+Misium ciprium, et sandaracam,* et elidrium, equalibus portionibus accipis: et aqua in qua cocta sint folia sandaracis montani (_id est_, papaveris agrestis, quod et ammonia dicitur) facis glutinis pinguedinem, et confla argentum, sed optimum; et, cum fuerit calidum, intinguis in predicta aqua.
+
+*) Sandaraca, _i. e._ gumma vernicis.
+
+## 73\. Argenti confectio.
+
+Eris cipri partes 2. argenti partem 1. sails ammoniaci ʒ. 4. aluminis scissi et liquaridie tantumdem. Omnia confla. Si autem volueris ex eo operari, expressionem cirii sumis, et uvam passam tritam, et mittis volaria in vas, et coquis plurimum, et tollis, et operaris ad ignem. Intinguis autem de medicamento, quod de coctione exit.
+
+## 74\. (Eramentum candidum facere.)
+
+Sumis cuprum productile, quod cardarium (_sic_)* dicitur, vel es ignitum, productum, facis laminas quibus substernis, et super aspergis cathmiam albam, tritam diligenter. (Nascitur in Dalmatia) qua utuntur erarii, et argilla oblinies fornacem diligenter, ita ne respiret, die una. Postea aperies, et, si bene habuerit, uteris; si non, secundò coquis cum cathmia, ut supra, quod si melius exierit cuprum caldarium permiscetur auro.
+
+*) This word is written caldarium, but the _l_ is underdotted, and an _r_ written over.
+
+## 75\. Eramentum candidum facere.
+
+Cum conflari ceperit, adice auripigmentum, non procuratum, sed viride.
+
+## 76\. Ad auri infectionem.
+
+Cum conflari ceperit, mitte auripigmentum quod curatum est.
+
+## 77\. Album eramentum facere.
+
+Conflato eramine, adice auripigmentum non procuratum, et fit album, et quod teri possit; hoc lavabis aqua sepius, donec fiat purum; atque ex eo tollis, et invenies flavum. Deinde aqua ablues, et invenies eramentum ut sanguinem. Huic adicies argentum in fornace, et fit argentum simile corallio. Hujus partem 1. et auri partes 2. commisces, et facis miraculum.
+
+## 78\. Plumbum similem argento facere.
+
+Plumbi minam 1. eris floris aliquid, corii mali Punici triti ʒ. 4. in cacabum mittis; obline cum creta, et sine, donec confletur.
+
+## 79\. Chrisocolle confectio.
+
+Plumbi ʒ. 1. eris ʒ. 4. uná conflabis, admiscens Samiam terram, et salem, et alumen liquidum, et sine dissolvi; simulque ut ceperit purgato medicamine. Si autem est igni productile (_id est_, caldarium) aceto tingue, et diffunde in quam volueris formam. Fiet enim non minime album.
+
+## 80\. Eris commutatio.
+
+Sumis salis minas sex, limature, vel rasure, minas 4. Misce limaturam cum trito sale in vase, aspergens aceto, et dimitte diebus 3. et invenies viride factum.
+
+## 81\. Item.
+
+Spuma argenti ʒ. 4. cum stercore columbino, et aceto teris. Scribe grafio calefactum.
+
+## 82\. Argenteis litteris scribere.
+
+Argentum vivum et tornaturam de stanno tere; diffundes acetum liquidum, et, cum triveris, fac pinguedinem ex qua scribere possis.
+
+## 83\. Ex ere argentum, vel elidrium, vel aurum facere.
+
+Sumis eris partes 4. et argenti partem 1., confla, et adice auripigmentum non ustum, (hoc est, curatum,) partes 4. argenti partem 1. et, cum valde calefeceris, sinito ut refrigeret, et mitte in patinam, et argilla oblinitum. Tunc assa, donec fiat cerussa, et confla, et invenies argentum.
+
+Si autem multum assaveris, fiet electrum. Cui si partem 1. auri addideris, fit aurum optimum.
+
+## 84\. Quo modo oportet argentum nigrum candidum facere.
+
+Sumis minii solidos 2. ex quo fit argentum vivum, quod aqua calida lavatur, et siccatum in usus venit. Uná conflabis, admiscens modicum calcidrium, et argentum, et plumbum. Accipiunt autem omnia plumbum conflatur, et sic invenitur splendidius assignatum.
+
+## 85\. Argenti mixtura.
+
+Fel vituli teris, et mirram muliebrem, et semen rute tertiam partem, et rubeæ masculinæ similiter tertiam partem; deinde infunde tertiam partem, deinde infunde in argentum, et pone in summum fornacis, et diffundis, donec calefiat; et tunc adicies intus in fornacem.
+
+Eris cipri partem 1. stagni partem 1. unà conflentur in antabram (Est autem antabra forma pecuniaria).
+
+Argenti partes 2. stanni purgati 3. partes. Purgatur autem stannum sic; pice et bitumine admixto conflatur, eris albi dimidiam partem confla simul; deinde tolle et tere, et fac quod vis.
