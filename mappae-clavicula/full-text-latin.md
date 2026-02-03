@@ -731,3 +731,153 @@ Fel vituli teris, et mirram muliebrem, et semen rute tertiam partem, et rubeæ m
 Eris cipri partem 1. stagni partem 1. unà conflentur in antabram (Est autem antabra forma pecuniaria).
 
 Argenti partes 2. stanni purgati 3. partes. Purgatur autem stannum sic; pice et bitumine admixto conflatur, eris albi dimidiam partem confla simul; deinde tolle et tere, et fac quod vis.
+
+## 86\. Argentea vasa tergere sine abusia.
+
+Sumis lanam sordidam, infusam aqua salsa viscida, et extergis: abluis aqua frigida, et patieris siccare. Hinc extergis, nullam aposiam facit.
+
+Nitrum russum, alumen non satis purum, germina porrorum, marinos (? marmos) succo teris, cum uve lupine succo, et inungc argentum solida penna; calefac in quo et argentum vivum erat.
+
+Nitrum russum et alumen simul confla; deinde teris cum aqua, unges argentum et calefacis.
+
+Eris cupri minam dimidiam sume, et stanni minam 1. magnesie ʒ. 8., piritis lapidis triti ʒ. 20., conflabis, et immitte stannum; deinde parum novissime argentum vivum, et cum ferro commoveris; infunde in columnellas.
+
+Minium cum alumine tere, defunde acetum album, et facies pinguedinem ceroti. Cumque frequenter terseris, patere per totam noctem ita esse.
+
+## 87\. Argentum aureo colore apparere.
+
+Minium, alumen liquidum, cimoliam, equalia. Hec fundes in aquam marinam, cumque frequenter calefeceris, argentum in eo tingue.
+
+## 88\. Candidi confectio.
+
+Candidi limature ʒ. 4. recipe, et argentum vivum; et, cum non innovaveris, asperge alumine rotundo, et confla.
+
+## 89\. Liquidi argenti confectio, per quod quis aurum de-argentet.
+
+Argenti limature ʒ. 4. mellis Attici ʒ. 15. resine liquide ʒ. 5. eris usti ʒ. 2. liquefac in sale. Deinde repone in pixide.
+
+Stanni purgati libram 1. argenti vivi ʒ. 1. Brundisini speculi tusi et cribellati ʒ. 1.; admisceatur argentum vivum stanno, cetera vero singulatim conflentur, et misceantur; et, cum factum fuerit liquidum, calefacis frequenter eramen, et, cum resederit et unxeris, intinguis in illum liquorem, et sicuti aque stagnantur summi os vasculi calefacies, et non exiet.
+
+Plumbi usti aliquantulum teris in mortario, admiscens sulfuris modicum, et facis glutinis pinguedinem cum aceto: scribe vasa argentea, et, cum siccaverit, calefacis, et nunquam delebitur.
+
+Eris partem 1. stagni partes 5. plumbi partem 1. teris omnia simul. Crisocollam, argentum vivum, Samiam terram rufam, mel, in unum conteris, et inungis vas ereum, et assabis.
+
+## 90\. Argentum colorem safirinum.
+
+Est autem potio permixtionis hujus; alumen scissile in aqua decoquis, adicis argentum vivum, et lapidem assum Bisaniten partem 1. laminæ argenteæ partem 1. Hec fiunt ut lotum formare possis quod vis, et patere siccari triduo, neque ante formaveris, ne narres quid est, nam exterminabitur, arenosum enim fiet: calefac, autem, non contingens nisi semel; si verò bis volueris, perdis mixturam: formabis signa non dissona a viriditate saphirain (? saphiram). Si vero volueris eadem deaurare, chrisitem, et crocum gummi liquido permisce.
+
+## 91\. Ut argentum, et es, auri colorem excipiat.
+
+Auri partem 1. plumbi partem 1. hec simul confla, deinde limabis, teris in mortario duro Thebaico, aquam et nitrum adiciens: post infundes in vas plumbeum; deinde intingis vas, et mittis in fornacem, et calefacis donec auri colorem habeat.
+
+Accipies stagni ʒ. 2. stanni ʒ. 2. confla, et cum permixta fuerint utraque peribunt, et fit fragilis materia. Hanc teris in mortario duro, adicies gummi et blude siccum omni modo; et, cum siccaverit, deline, ut subjectum est. Si autem aurei coloris velis videre, crocum tritum cum glutine puro permisces; quod delinias scribere, cum scripseris et siccaverit, delinimento tere.
+
+## 92\. Argenti inscriptio Italica.
+
+Sumis laminam argenteam; teris, ut infra scriptum est, cum sale, vel nitro. Deinde ablues aqua, adice fel taurinum, et, conterens in vas vitreum, repones. Scribe penna, aut pincello pictorio; cum siccaverit, delinies.
+
+Sumis laminas argenteas, teris cum argento vivo, et stilbada, et alumine, et gummi, et aceto sic scribe. Ut perseveret scriptura, misce omni colori aqua fabriferiarii (? fabriferrarii), et aluminis tantum, et sic scribe, cum ante diligenter exterseris.
+
+Eris florem, eruginem, sulfur, in aceto dimittis: scribe adjecto gummo.
+
+Fricabis argentum in mortario basanitis lapidis, cum aqua modica, et liquabis aqua, et siccabit argentum tritum, ydrocollam recipiens: scribe hoc ipso, et in auro faciens similiter utere.
+
+Argenti ʒ. 1. confla, et, cum solutum fuerit, adicies stanni puri ʒ. 3. et defundens, patere ut refrigescat. Deinde lima et tere, et scribe quod volueris.
+
+Stanni partes 2. plumbi partes 3. simul confla; et cum feceris, deline, lima, et tere: deinde adice ydrocollam, et deline.
+
+## 93\. De argento vivo scribere.
+
+Accipe argentum vivum, et mittis in pultarium; adicies calcis vivæ modicum, et aluminis liquidi modicum, et acceti acerrimi aliquantum, quod commoves donec admodum simile fiat; depone de foco, tere, et mitte in pannum; exprime, et descendet argentum vivum; et ammisce vitrocollam, (_sic_) et scribe.
+
+Eris cipri ʒ. 2. stanni et magnesiæ albæ ʒ. 1. spumæ argenti ʒ. 4.
+
+Sumis stannum candidum et tenue, purgabis quater, et argenti partem 1. conflabis; et, cum conflaveris, tere diligenter, et fabrica quæ velis, sive pocula, vel quicquid tibi visum fuerit. Erit enim ut primum argentum, qui etiam artifices fiant.
+
+Sumis stannum purum, ut nosti, stanni ʒ. 1. magnesiæ scripula 3. scumatos mollis purgas, limas ex eo scripulis 3. argenti vivi scripula 3. Postea sumis limaturam ferri, teris in mortario, donec fiat lanugo; deinde mittis corpus magnesiæ, et hoc teris cum eo diligenter, donec fiat malagma, et hoc mittis in fornacem, conflabis, deinde mittis, et stannum, in aliam fornacem. Hanc scripturam discito.
+
+## 94\. Eris usum, argento similem, facere.
+
+Chrisocolle, ceruissæ terrene, argenti vivi, singuloruin ʒ. 2. teris, et infundis mellis boni quod sufficiat, et calefacis; cum, quod vis, inungis, leviter subice ignem de lignis leucinis (_id est_, violaceis), cum ante terseris vas.
+
+Argentum vivum et sulfur inunge, et erit miseos cipri cipri (_sic_) minam 1. miseos assi libram 1. aluminis sordidi ʒ. 14. Accipies in manu salem tenuem, quem in manu feres donec nigeat. Staterem, diligenter tersum, defrica cum sale, et, ubi factus erit argenteus, de eneo statere denarium duci foliis vitteis obvolve, et patere tota nocte ita esse: sequenti die tolle et utere.
+
+## 95\. (_Litteras virides facere._)
+
+In ere, vel ligno, vel lapide, aut in quocunque vis, litteras virides facere perpetuas.
+
+Accipias naxias limaturam, de cute tonsuram, et tere similiter limaturam agaciam, et alumen, et de lacu aqua (_id est_, pluvialem) et ordei seminati herbam: omnia simul terens, scribe, et erunt virides litteræ.
+
+Extergis es, et pumicas diligenter, et dimittis in sole; postea, accipies citri partem 1. et de malo Punico ligna, concide diligenter, et tolle ex ipsis mensuram convenientem cum nitro et aqua et sale faciens. Mitte es, et dimitte illic diebus 5., et, cum intinctum fuerit, inunge cerotum.
+
+Columbaris spinæ suce (_sic_) partem 1. cum alumine teris; recipis tusum diligenter, et dimitte biduo; et, cum tuleris, inunge et dimitte die 1. et tunc exterge.
+
+Accipies argenti ʒ. 1. eris ʒ. 1. plumbi dimidiam; confla simul. Cum autem ungere velis, appone gluten eri, et calefactum ferrum adjunge glutini, quod est appositum eri, et sic ornabis. Sin autem laminam laminæ conjungis.
+
+## 96\. Colorem viridem facere.
+
+Cuprum, productum in laminas, line cum melle, vel spuma mellis cocti; et suppone spatulas ligneas in vase, quibus suffundas lotium hominis; et stet per dies 14. coopertum.
+
+Auricalcum productum line cum melle cocto, et infunde ei urinam, et acetum, pari mensura, et sit opertum dies 14. et erit quasi lazur.
+
+## 97\. Indicum colorem facere.
+
+Succum de ba(c)cis ebuli collige, et diligenter sicca ad solem; de hoc quod remanserit fac pastillos, cum parvo aceti, et vini, et utere.
+
+## 98\. Collam Grecam facere.
+
+De vernice fac farinam tritam in marmore, et cribratam; et mitte in ollam rudem, strictam diligenter operculo clausam, ita ut in medio operculo sit parvum foramen, et in ipso foramine stilus ferreus; et pone in laminis ferreis super fornacem aurificis, que prius debet incendi. Deinde suppone ligna arida minutissime concisa, et, statim ut incaluerit, liquescit. Extrahe stilum ferreum, et guttulam pone super unguem; et, si liquida apparuerit, subtrahe focum, et infunde olei de semine lini expressi 2. partes, ad 1. partem vernicis, et iterum, suppositis lignis, coque ad horam parvulam, et utere. Si verò sit de grano masticæ, liquescit tardius.
+
+## 99\. Inauratio lapidis, vel ligni, vel vitri.
+
+Qui autem vitrum inaurat, tollat partem de glutine picis, et partem de gumma amigdalæ; et, miscens, coque, et ungue ipsum vas, et concide subtiliter petalam auri, pone secundum similitudinem quam vis facere. Similiter et lapidem lavans aqua, et lignum; et, dum siccaverit glutinatio, cum emathite lapide, aut cum ferro, defrica.
+
+## 100\. Ad colorandum aurum.
+
+Sume atramentum, et assa, ut scis, et aliud, tantundem salis, et distempera cum vino rubeo, in eneo vase non nimis rarum, et inde line aurum; et pone in fornace, et tamdiu calefac ut nigrum fiat, et extrahe.
+
+## 101\. De dispositione Fabrice.
+
+Dispositio fabrice de pontibus, vel quibus mensuris oporteat edificia disponere, vel quibus mensuris in altitudinem elevare, secundum modum fabrice.
+
+Si in altitudinem 4. staturis fuerit, fabricam unius staturæ altitudine oportet esse fundamentum. Si vero tribus staturis altitude, usque ad bifurcum erit fundamentum. Si autem unius staturæ altitudo, usque ad geniculum fundamentum. Si statura 4. cubitorum,* si vero 3. usque addida, si duorum, usque ad furcam. Si in lignis opertum in altitudine fuerit. Si voltile fuerit, quantum in altitudinem, tantum et in fundamentum debes cavare; ita videlicet altitudinem mensurari oportet, ut tantum parietis absque camera mensuretur. Si autem durus fuerit locus et montuosus, cubito minus per staturam pones fundamentum. Si mollis locus fuerit, sicut supra diximus, edifices. Si vero petrosus fuerit locus, non crede petris, sed cava, sicut oportet, ne pondere nimio deprimatur, et subsidat fabrica.
+
+*) Something seems to be omitted here.
+
+## 102\. De Fabrica in aqua.
+
+Si fabricam in aqua necesse fuerit erigere, facis arcam triangulam, et picas eam foris cum sepo et pice, ut non in eam intret aqua, et solvat ipsam calcem, et eos qui laborant intus; et positam arcam inter 4. naves, constitues in loco ubi necesse fuerit: et oneratas ipsas naves, ut non moveantur in aqua, et tunc impones lapides ad fabricandum. Temperatio autem calcis talis fiat. Mittis arene partem 1. et calcis 2. et tunc operaris. Ipsa autem arca habeat 1. cubitum super aquam.
+
+## 103\. De Multa.
+
+Multa quoque debet ita confici. Mittis calcis partem 1. arenæ partes 3. vel 4. teste tuse tertiam, pulveris palearum sextam partem, aque verò congium 1. olei porcini sextaria 2. et requiescat ebdomada 1.; si plus dimiseris, melior fiet. Assidue autem infundatur secundum mensuram quam indiget, et conficiatur, et tunc operare.
+
+## 104\. De licamonia.
+
+Licamonia, alumen Egiptiacum, fresa solis 3. nitri z. 1.
+
+## 105\. De compositione cinnabarin.
+
+Tolles ydroargiris mundi partes 2. sulfuris vivi partem 1. et mitte in ampullam, sine fumo, et lento igni, decoquens, facies cinnabarin, et lava utiliter.
+
+## 106\. De compositione iarin.
+
+Tolles petalam mundissimam de eramine, et suspende super acetum acerrimum: pone ad solem immobiliter per 14. dies: aperies, et tolles ipsam petalam, colliges florem; facies iarin mundissimum.
+
+## 107\. De compositione psimithi.
+
+Tolles plumbum, et facies petalam, suspende super acetum; colliges ipsum florem, et lavas bene, donec mundus fiat, et facies psimithin. Posthac, tolles de cinnabarin partem 1. de iarin partem dimidiam, et de psimithin partem dimidiam, et mittis in mortarium marmoreum, et teris bene. Post tritionem autem, mittis ex aqua, ubi coquitur icciocollon, et fiet pigmentum pandium.
+
+## 108\. Compositio Lazurin.
+
+Folia floris violæ colliges, et in mortario mundo teres bene, et mitte saponem ex axungia, sine calce: mundum facies, squama cum aqua tepida, et solve saponis in libram aque ፥ 1. et fricas subtiliter ipsum saponem cum aqua, et dimittes refrigerari. Et posthac, mittis ipsam commixtionem in tritura florum, et mittis illam in vas vitreum, in quo possis mittere, et repones ibi: et post aliquod tempus commisces, et permove illud cotidie in die semel, usque ad imam ebdomadam. Posthac 3. dimittes, et duos permoves, donec decoques. Postea tolles lilium fuscum majus, quod est porfirius, quod habet folia veluti cultellus; similiter et ipsum defricas in mortario utiliter, et dimittes sine sapone, mittens aquam; et postea, ex violæ compositione libras 2. de lilio majore fusco libram 1. aluminis Egyptii spumati, si forte est inspumatum, saponem, aut, si debile est, et crudum, mittes ʒ. 2. urinæ spumatæ, libras 2. et lento igni decoques, per horas 6. et si multum viride est, mittes urinam; si vero multum venetum, plus alumen mittas.
+
+Si autem lazurin viscidum ex albo lilio domestico mittas quod sufficit, et decoques. Gustum autem coctionis in ligno unde movetur considera. Calidum enim non demonstrat, frigidum vero ostendit colorem. Coctio autem lento igni debet esse. Aqua enim cum coquitur expendet, quare et ipsa commixta debet esse cum sapone, secundum commixtionem quam prediximus, et ita coctioni addi. Quando autem de fornace tollis cacabum testeum bituminatum, aqua vult superare commixtionem.
+
+Alumen verò in forti sapone expumato sit. Mitte alumen in (aqua)* tepida, dimitte residere alumen visum, et effunde ipsam aquam tepidam, et ita expuma alumen. Ipsam autem commixtionem sic defrica, ut in pulverem redigatur, et non sint species in lazurin. Nam post coctionem ipsam comixtio terenda est, et movenda, et in umbra desiccanda in ipso cacabo; et postea ad solem eicienda, et torrenda, ut fiat lazurin.
+
+*) Not in MS.
+
+## 109\. Ut pictura aqua deleri non possit.
+
+Oleo, quod apellatur cicinum, super picturam ad solem perunge, et ita constringitur, ut nunquam deleri possit.
