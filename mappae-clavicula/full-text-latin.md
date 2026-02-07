@@ -881,3 +881,87 @@ Alumen verò in forti sapone expumato sit. Mitte alumen in (aqua)* tepida, dimit
 ## 109\. Ut pictura aqua deleri non possit.
 
 Oleo, quod apellatur cicinum, super picturam ad solem perunge, et ita constringitur, ut nunquam deleri possit.
+
+## 110\. Confectio pandii.
+
+Folia florum papaveris nigri collecta repones in pinnato novo; et operiens pones ad solem 1. die: et, dum marcida fuerint, tolles aquam in qua icciocolla decoquitur, et mitte in ipsam folia florum, et teres utiliter, miscens cum modico cinnabarin, ex exiet color pandius.
+
+## 111\. Confectio ficarin.
+
+Tolles laccam mundam, et teres munditer, et coques eam in urina spumata, et iottam, que exiet, refundes in vas vitreum. Postea tolles siccum et bene tritum pulverem de lilio albo domestico. Si autem infuscaverit, non mittas, ne fuscum fiat. Istud tritum in libras 2. de irinico flore, et ipsum tritum libras 3. pulveris duarum commixtum unicuique coctioni lacce ⍮ 1. de alumine Egyptiaco commisce, et teres bene: mittes in vase testeo novo bituminato, et pones ut tepescat modicum, et non comburatur: posthac, commisce coctiones ad laccam, et facies bullire. Tolle de fornace, sicca ad solem.
+
+## 112\. Deauratio in ligno, vel in panno.
+
+Si in ligno debet fieri deauratio, gumma amigdalæ infusa die una; postea teres utiliter ipsam gummam cum aqua, et addito croco, quod sufficiat, tingue in ipsam aquam cum gumma et tepefacito omnia lento igni, operare in ligno quando opus est. In pannis vero, vel in parietibus, tolles albuginem ovi subtile, et addito croco, quod sufficiat, tingue, et commixta ac trita repones in vase vitreo.
+
+Item, lineleon. ⍮ 1. gummæ infusæ ⍮ 1. crocum, quod sufficiat, commisce: cum aqua decoques.
+
+_Rubric._ Ista tria capitula sequentia ubi necesse fuerit in exauratione petalarum operare.
+
+## 113\. Compositio lineleon.
+
+Lineleon libras 2. gumme ʒ. 1. resine pinii ⍮ 1. Omnia hæc trita decoques in vase testeo. Lineleon libras 2. gumme ʒ. 2. resine ʒ. 1. croci solidos 2. Ista tria commisce sicut superius.
+
+## 114\. De lineleon in exauratione.
+
+Operatio sternituræ exaurationis, si super pellem crudam immobile tinctam, aut ex psimithin, aut ex aliquo colore sternitum est, ista a chrisopetalam reponuntur; et, post desiccationem, desuper lineleon perunge, ex commixtione quam supra docuimus, ubi croco componi dicimus.
+
+## 115\. De inductione exaurationis petalarum.
+
+Petala fiat de stanno: fiat autem sic. Solves bene ipsum stannum, et fundes paulatim in marmore, et facies petala subtilia, veluti ex auro: et pones sicut chrisopetala, ut supra docuimus, et decoques herbam celidoniam, et, ex ipsa coctione colata, mittens ⍮ 3. croci solidos 3. auripigmenti solidum 1.
+
+## 116\. Tinctio stagneæ petalæ.
+
+Tolle croci mundi ⍮ 1. pigmenti optimi fissi ⍮ 2. mitte gummi dimidiam, et lineleon ⍮ dimidiam, et aquam pluvialem, aut dulcem, commisce, ut bulliant simul. Commisce confectiones, terens bene, tollesque cum spongia, unge ipsam petalam; et, cum desiccaverit, secundo unge, et desiccatam cum onichino defrica, ut splendeat.
+
+## 117\. Confectio crisocollæ.
+
+Caucucecaumenum ⍮ 1. saponis olei solidos 3. calcitirii (_sic_) solidum 1. Ista commisce, primum terens caucucecaumenum utiliter ad pulverem, et calcitarin (_sic_) semotim, et commisce cum sapone et aqua, quantum necesse fuerit, ad ipsum chrisocollen.
+
+## 118\. Aliud crisocollon.
+
+Caucucecaumeni libram 1. aluminis, sol. 2.
+
+## 119\. Item.
+
+Aurum commixtum cum argento vivo mittitur in calidum, donec ardeat ipsum argentum vivum. Postea, tolles aurum et teres in mortario, donec fiat pulvis; et commisce illud cum sapone ex oleo, quantum sufficiat ad commixtionem chrisocolli.
+
+## 120\. Item.
+
+Argenti partes 2. eraminis partem 1.
+
+## 121\. Item.
+
+Argentum mixtum cum argento vivo pones in ignem, donec siccetur ipsum argentum vivum. Deinde tere illud donec fiat pulvis: commisce cum sapone et aqua, quantum satis est.
+
+## 122\. Eramenti gluten.
+
+Eraminis libram 1. plumbi libras 2. commisces, solves primum eramen, deinde mittes plumbum, et commisce in unum.
+
+## 123\. Gluten de ligno vel osse.
+
+Glutinatio ligni in aqua. Icciocollon ʒ. 1. lactis fici ʒ. 1. titimali lac ʒ. 1. ista comisce in aqua, decoque. Est autem gluten ad sculpta ligna: si lignum in lignum, unum ex supradictis 3. Si autem ossa in lignis, casei gluten ʒ. 1. commixtum cum icciocollon ʒ. 2. decoques in unum, et gluten calidum, calefacis modicum ipsa ossa, et sic glutinas.
+
+## 124\. De metallo auri ad coctionem.
+
+Indicamus vobis quomodo fieri possit aurum de pinguedine metalli. Dum ipsum metallum inventum fuerit, facito vas quod ipso metallo recipere possit libras 20. et postea mitte cum ipso vase in fornacem, et sufla ignem ab hora prima usque 6. Postea vero in pinguedine metalli mittendum est coralli libræ 2. amoniacum fundatum, calcum, aurum, libræ 2. sal bedica libræ 2. cera alba quantum opus fuerit; unctum libræ 2. tartarum libra 1. coctum de omni pigmento singulos per se intrantes. Que vos legistis omnia probata habemus, quia tria metalla ad aurum coquendum pertinent. Et aliud metallum indicamus vobis coquendum, sed plus disculum erit, quam metallum auri. Qui ipsum coquere voluerit, sicut ros erit odore, et in ipso vase, ubi coctum fuerit, mittito primam cocturam pice ad aste (? arte) medietatem libræ. Alia vero fersurura vitrum mastallo, tertia coctura stanni libras 2. qui ipsum metallum ad opera salva perducat, et, dum coctum fuerit, istud, quod in ipso metallo mixtum fuerit, ad pulverem vertitur, quia probatum est.
+
+## 125\. De metallo argenti.
+
+Prassinus, terra est viridis, ex quo metallo manat argentum. Nascitur autem et ipsa terra in locis petrosis ubi inveniuntur multa metalla diversis coloribus. Ista petra trita albas habet venas, decoctas exeunt nigra, sic autem probatur. Comminuta post coctionem intus ut argenti colores ostendit: iste lapis est de quo exiet argentum. Tolle ex ipso metallo, fornace enim sicut superius primæ cathmiæ, et mittis ipsum metallum in canciacami, et imple carbonibus; et sic decoques, et fundes die una, et dimittis refrigerare in ipso loco; et posthac tolles ipsam massam, et comminues minutatim, remittes in ipso camino, sicut prius, et cum ipso plumbum femininum. In centum libras massæ plumbi 15. et coque sicut prius per dies 3. Posthac eice ipsam massam, et comminue; mittes in calida vel in tanida, et confla per 2. horas.
+
+## 126\. De lapide adamante.
+
+Lapis adamas nascitur ex cathmia, et auri coctione, in prima coctione massæ. Post primam cocturam, dum confringis massam; omnis enim massa confringitur leviter; iis autem remanet, alius parvus, alius magnus, cui ferrum non dominatur, nec aliud quid aliorum lapidum. Ipse autem omnibus prevalet; solo vincitur plumbo, et hec est potentia plumbi.
+
+Tolles plumbum femineum, facile et molle, et solves, et jactes ibi ipsum adamantem, partem quam volueris subtiliare; et lento igni succendes plumbum; et, dum ceperit subtiliari, continuo cum mordace tolle, et in sapone ex oleo operiens, leniter ac mundissime, eo quod sit debilis. Est enim fragilis plus quam vitrum, et mollis plus quam plumbum, eo quod solvatur in plumbo; deinde tolle illum de sapone, et in cote aquaria exacuas cum ipso sapone, quantum volueris subtiliare, et mitte in ignem magnum diligenter, et excandeat per horas 2. aut 3. donec candeat totus sufficienter. Postea tolle et lava, et exiet adamas cui ignis non dominatur, nec feriendus dissipatur, et laborans non curtatur; per quem omnia que volueris operari potes.
+
+## 127\. De conchilio tinctio porfirii.
+
+Conchilium nascitur in omni mari, plus quam in insularum locum. Conchula est, et habet in se locum sanguinis, et sanguis rubens porfirizontas, ex quo porfira tinguitur. Colligitur autem sic. Tolle conchilium, et collige ipsum sanguinem cum carnibus, et tolle muriam de mari, et compones in vas, et dimittes.
+
+## 128\. De porfirio citrino.
+
+Tolles alumen Alexandrinum; tere utiliter, et pone in gabadam, et mitte super caldam bullientem; permove diutius, et dimitte residere. Posthac cola ipsam caldam, et exagita; et mittes aliam caldam, et agita; et impone ibi quod habes tinguere, et cooperi, et dimitte 2. dies. Post hoc commove, et fac quod visum est sursum, et dimitte alios 3. dies, et post hoc exagita similiter et dimitte alios 8. dies, et exagita die infra duabus vicibus. Deinde tolle, et mitte aliud alumen, et facies exinde aliam tinctionem, et in eam mitte, et post tolle urinam mundam ex vino bono, et viris sanis, tollesque ipsam urinam, et spuma semel, et post hoc mitte in cacabum ereum; et tolle ipsum conchilium, et lava leviter semel in aqua. Post hoc teres, pone in pannos raros, delava in ipsa urina cacabi. Post hoc tolles de sanguine porcino, et de farna (? farina), et ipsum bene similiter lavans, sanguinem autem porcinum garidum libra conchilii ⍮ 3. de sanguine porci. Post hoc lavas semel modicum, et defrica; mitte in cacabum, et fac bullire secundo, et tertio, sub eodem modo libram enim tinctionis, libram conchilii cum sanguine; id est, 9. uncia conchilii, et 3. sanguinis porcini.
+
+...
