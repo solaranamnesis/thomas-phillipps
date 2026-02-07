@@ -964,4 +964,148 @@ Conchilium nascitur in omni mari, plus quam in insularum locum. Conchula est, et
 
 Tolles alumen Alexandrinum; tere utiliter, et pone in gabadam, et mitte super caldam bullientem; permove diutius, et dimitte residere. Posthac cola ipsam caldam, et exagita; et mittes aliam caldam, et agita; et impone ibi quod habes tinguere, et cooperi, et dimitte 2. dies. Post hoc commove, et fac quod visum est sursum, et dimitte alios 3. dies, et post hoc exagita similiter et dimitte alios 8. dies, et exagita die infra duabus vicibus. Deinde tolle, et mitte aliud alumen, et facies exinde aliam tinctionem, et in eam mitte, et post tolle urinam mundam ex vino bono, et viris sanis, tollesque ipsam urinam, et spuma semel, et post hoc mitte in cacabum ereum; et tolle ipsum conchilium, et lava leviter semel in aqua. Post hoc teres, pone in pannos raros, delava in ipsa urina cacabi. Post hoc tolles de sanguine porcino, et de farna (? farina), et ipsum bene similiter lavans, sanguinem autem porcinum garidum libra conchilii ⍮ 3. de sanguine porci. Post hoc lavas semel modicum, et defrica; mitte in cacabum, et fac bullire secundo, et tertio, sub eodem modo libram enim tinctionis, libram conchilii cum sanguine; id est, 9. uncia conchilii, et 3. sanguinis porcini.
 
+## 129\. De oxiporfironta aporodinis.
+
+Oxiporfironto aporodinis tolles trium cacaborum coctiones; et mitte in unum in eadem coctione quicquid volueris, tantum ex alumine. Si autem volueris plus munditer tinguere, mitte in unum cacabum sicut primum. Fiet enim et tercia tinctio eodem modo.
+
+## 130\. De porfiro citrino.
+
+Prius enim tinguitur citrinum, et posthac intrat in tinctione, ubi tinguitur porfirus.
+
+## 131\. De Crisorantida, de auri sparsione.
+
+Chrisopandium pulverem auri triti, sicut superius diximus, cum desiccatione argenti vivi, _id est_, pulveris auri 2. et iarin partem 1. commisce cum compositione daufiras, et dispone inde quod volueris.
+
+## 132\. De argirosantista, de argenti sparsione.
+
+Argentum mundum commisce cum argento vivo. Post hoc ponis in ignem, et desiccas cum ipso argento vivo: deinde tolle ipsum argentum, et tere, donec fiat pulvis: commisce cum impositione daufira, et dispone ubi volueris. Tolle argentum mundum, et commisce cum argento vivo, sicut supra diximus; deinde mitte in caliculo, et depone in ignem donec eiciat argentum vivum. Post hoc tolle argenti partes 2. et iarin partem 1. et commisce ex compositione daufira, et dispone.
+
+## 133\. De Smiria petra.
+
+Petra, quæ dicitur Smirias, asper et indomitus est, omnia terens; cum quo lapides, gemmæque limantur.
+
+## 134\. De terra limia.
+
+Terra que vocatur limia, que est alba sub porfira, nascitur in petrosis locis; et his signis cognosces eam. Cum infusa fuerit, bulliet, et sonum dat stridoris: alumen vero viride, et porphirium, omnia tinget, extra berillum et onichinum. Terra nigra vocatur, eo quod est fusca. Nascitur enim in Egypto, et Africa, et in Evilath, et in Italia. Nascitur enim in humidis locis, et in vallibus. Ex ea tinguitur roseum, commixta cum aceto, et cocta, reddet colorem; et post hoc revertitur in coccum.
+
+## 135\. De lapide focario.
+
+Lapis, qui dicitur focarius, ex quo eramen tingitur, nascitur in omnibus locis. Est et alius similis dum percutitur emittit scintillas raras et magnas; et est rubeus et igneus, colorem habens eramenti; et dum in ignem missus fuerit, ut probetur, incenditur, et colorem non mutat. Collectum autem et contritum minutatim, collecta massa modica, et cum letamine bovino, aut caprino, et palea cooperto, incendes per dies et noctes, donec consumetur ipsum letamen in fornace. Ipsum autem potes coquere, et eramen, et plumbum; et, postquam refrigescet, colligitur ipse lapis, qui jam coctus est, et in prima pensione, pensas libras 300. in prima coctura. In quam mittis carbonum cofinos 18. fasces de teda; et dum ingressi fuerint magistri ad opera, et incensa omnia dimittes stare ea, et refrigerare, ut non currat, si est plumbum, aut ferrum, aut cetera metalla, eo quod piger fiat. Et, dum refrigescit, comminue minutatim, et in fornace conflatur, et operaris ex eo.
+
+## 136\. De lapide fisso.
+
+Lapis fissus nascitur in Capadocia, Asia, Hiberia, et in Italia. Est enim fuscus et fortis. Dum comminutus fuerit, invenies in eo venas albas; et, cum incensus fuerit, fiet rubeus; quem Alexandrini vocant "cathmiam," eo quod conflet vitrum. Nascitur autem in altis locis, et ventosis. Est enim lapis crepidinosus.
+
+## 137\. Quomodo fiat cera-marmor ex gagate, et de lapide tracho.
+
+Lapis gagatis similis coloris auripigmenti, non enim sic multum viridis; qui, dum rumpitur, ignem emittit, et finditur in laminas; propter quod Alexandrini vocant eam "petram planam," ex qua fit cera-marmor. Quem, si pisas subtiliter, et mittis libram de ipso lapide, et 2. de aurocollon, et aquæ libras 5. et bis et tercio facis bullire, assidue commovens, et commiscens, fiet cera-marmor.
+
+## 138\. De lapide tracho.
+
+Lapis trachias nascitur in universis locis; est enim viridis, fissus, fuscus; combustus, fiet albus; mittitur in cathmia in mundatione argenti.
+
+## 139\. (_De Caucucecaumenon._)
+
+Caucucecaumenon fit hoc modo. Ex eramento mundissimo facies petalas, mittasque in usitatum ipsas petalas, et sulphur vivum tritum; et iterum sterne petalas in cacabo: deinde super sparge sulfur, et ita facias donec impleas ipsum cacabum. Deinde, in fornace vitrarii posito cacabo, coque diebus 3. et, dum refrigescit, confringes eum minute. Adde alumen Asianum, secundum compositionem sulfuris; similiter cooperiatur ipse cacabus, et liniatur cum argilla, et ponatur secundum dispositionem prioris, et coquatur per dies 6. Ipse autem, dum confringitur, solvat caucucecaumenon ad gluten aureum.
+
+## 140\. Compositio electri.
+
+Electrum fiet hoc modo. Pone 2. partes argenti, et eramenti tertiam, et auri tertiam (_sic_); ita ut aurum et eramentum equis ponderibus fiant.
+
+## 141\. Gluten auri ad fistulas.
+
+De chrisoclabo astici ʒ. 1. caucucecaumenon ʒ. 1. affronitri ʒ. 1. saponem ex oleo sine calce ʒ. 1. vitrioli solidi 2. aceti dimidiam ʒ. aque ʒ. 1. comminue, et commisce semotim eramen; cetera in unum commisce, et compone modicum, ut tepescat gluten de canilis chrisoclabi.
+
+## 142\. Compositio litargiri ex plumbo.
+
+Litargirum, aliud ex plumbo, aliud autem ex argento, fit. Compositionem, quæ ex plumbo fit, sic compones. Plumbum impone in cacabo potius femineum et molle, et solves illud bene; deinde, cum solutum fuerit, pistillo ligneo frica plumbum incessanter: mitte cinerem similiter, et non desinas terendo quoad usque facias eum ut pulverem; et post laves eum aqua. Si autem stringi volueris eum, et fieri spissum, mitte in cacabo, vel in cabilo, vel in camiolos (? cannolos) cum oleo; et calefactum adimatur, et, dum refrigescit, franges caniclos.
+
+## 143\. Alia compositio litargiri ex argento.
+
+Compositionem litargiri ex argento sic facies. Confla argentum, et illa sordidatio, que ex eo exit, trita cum oleo intrat, secundum priorem compositionem: plus autem incenditur propter fortitudinem argenti. Plumbi autem litargirum, ante quam solidetur, intrat cum aqua in bituminatione testea. Dum autem extrinxerit, ubi volueris, necessarium erit.
+
+## 144\. Inauratio musii operis.
+
+Facies petalum vitreum spissum supra petalum eramentinum, ita ut incensum non cohereat. Posthac tolle petalum aureum super petalam vitri, et super petalam auri aliud pone ex vitro multum subtile; et mitte utrumque in fornacem, donec inchoet solvi petalum vitri; et sic eice ut refrigescat. Posthac frica faciem ejus in tabula plumbea smirutata, donec attenues faciem ejus, et coloras illud.
+
+## 145\. De tabulis smirutatis.
+
+Facies tabulam de plumbo, et tolles smirram vivam; tere bene, et asperge tabulam totam, defricans semel vitrum, donec confringatur pulvis smirræ ad tabulam, et posthac operaris quod necesse est cum aqua.
+
+## 146\. De coloratione musii.
+
+Ad colorationem autem tolle tabulam, et caraxa illam curtatim, et terens cretam argenti subtiliter, asperge tabulam, et defrica bene ipsum vitrum, donec coloretur.
+
+Eraminis mundi limati partes 2. et aluminis Asiani, in mortario diligenter pisati et cribrati, partem 1. commisce in caliculo, et pone ad prunas, donec confletur, et commisceatur alumen cum eramine. Ipsam vero formam vasorum quam facere volueris prius munda urina, et sic funde eramen, quod in prima quidem, ac secunda inflatura, retinet colorem, in tertia perdet, cum limaveris, et batis illud continet colorem: si frangatur inutile erit.
+
+Omnis gemma durioris naturæ, sicut jacinctus, et smaragldus, alemandina, carbunculus, fricantur ismiri lapide in plumbea tabula, usque dum formam accipiat, qualem illi cavator dare voluerit. Deinde fricatur in lotura ejusdem pulveris, in quo prius fricabatur, usque ad lenitatem. Splendificatur verò uno modo, sed jacinctus in pulvere lapidis igniarii combusti in lamina ciprea. Ceteræ vero splendificantur aut pulvere, facto de cimolia, aut ex fragmento testeo, quod fit ex vasis antiquis, in astula lignea tremuli, aut alni. At gemmæ mollioris naturæ fricantur, usque ad formam, in pulvere lapidis arenatii super plumbum, sicut sunt amethistus, cristallus, onichinus, jaspis, berillus; deinde fricantur usque ad lenitatem in lotura ejusdem pulveris. Splendificantur in pulvere lapidis igniarii combusti super laminam cipream. Vitrum verò fricandum est in lapide arenatio usque ad formam; deinde super plumbum, in pulvere minuto lapidis arenatii, usque ad lenitatem: deinde super hastulam ligneam, in confricatura testæ antiquæ fit, in cote cum aqua; novissime in cimolia splendorem accipit, et hoc in hastula lignea.
+
+Frangitur ismiris lapis malleo super incudem durum in pulverem minutum; et fiat tabula de plumbo, quæ conficitur super scamnum ligneum; et pulvis illius lapidis super illam aspergitur, et in eo qualiscunque gemma formanda est; fricatur cum aqua, usque dum formam accipiat, quam ei cavator dare voluerit: deinde sumitur idem pulvis et lavatur: ex eo, quod minutissimum fuerit, super aliam laminam plumbeam ponitur, et in eo quælibet gemma fricatur usque ad lenitatem.
+
+Sumitur lignum grossitudine minimi digiti, longitudine palmæ unius, et in ejus summitate pix calida, mixta cum tegula trita, ponitur; quæ mixtura duas partes pulveris de tegula, et tertiam picis, habere debet; in qua postea calefacta gemma, quæ fricanda est, sic ponenda est ut adhereat.
+
+Eris pulvis, vel limatura, teritur cum aceto in eneo mortario, cum sale et alumine, usque ad mellis spissitudinem. Aliqui pro aceto aqua utuntur. Denique bene purgatum ferrum, et leviter calefactum, hac mixtura inungitur, et fricatur, donec colorem eris accipiat: tunc aqua abluitur, et teritur; et, sicut es, vel argentum, deauratur, et calefactum, recedente vivo argento, sicut mos est, ut splendorem accipiat ferro defricatur.
+
+Alumen rotundum, et sal, quod gemma vocatur, et calcantum, ex aceto acerrimo, teruntur in ereo mortario; his ferrum purgatum cum ferula, vel alia qualibet molli hastula defricatur; et, cum eraminis colorem habuerit, extergitur, et deauratur, ac deinde, exfumigato argento vivo, aqua refrigeratum, usque ad splendorem ferro, valde plano et limpido, defricatur.
+
+## 147\. Cathmie compositio.
+
+Eris mundi libra 1. calcitarin z. 2. affronitri z. 1. sulfuris z. 1. Hæc omnia mittes in calido, et solvantur in unum, et coquantur, donec comburatur eramen, et calcitarin, et levatur ea quæ remanet cathmia.
+
+## 148\. Quianus ita fiet.
+
+Eris partem 1. plumbi partem 1. triti nitri z. 1. calcitarin z. 1. affronitri z. 1. commixta et combusta, commisces cum aceto, et repones ad solem; sicca et tere.
+
+## 149\. Anfinus sic fit.
+
+Tolles plumbum molle, et solves in vase testeo forti, ut sufferat trituram: tolles pistillum, et mittes carbones cum cinere super plumbum, priusquam refrigescat; permoves illud cum pistello leniter et bene, donec attenues et subtilies ipsum plumbum: post hoc mittes in gabata lignea, et delavas. Deinde componas in cacabo novo cum sulfure, et decoques per dies 3.
+
+## 150\. Pandii compositio.
+
+Psimithin partem 1. cinnabarin partem dimidiam, tere in mortario marmoreo bene: post contritionem autem, mitte ex aqua in qua coquitur icciocollon, et fiet pigmentum pandium.
+
+## 151\. Alia.
+
+Iarin partes 2. cinnaberin partem 1. spimithin (_sic_) partem 1. quiani partem 1. lulacin partem 1.
+
+## 152\. Alia.
+
+Quianon solidos 3. spimithin (_sic_) z. 1. nitri partem 1. calcitarin partem 1.
+
+## 153\. Alia.
+
+Aluminis partem 1. sulfuris vivi partem 1. nitri partem 1.
+
+## 154\. Tinctio vitri prassina.
+
+Tere vitrum bene, et de limaturis eris mundi z. 3. mitte in libram vitri, et decoques per dies 3.
+
+## 155\. Alia.
+
+Vitro bene trito ad libram ejus adiciantur eris limature z. 2. aluminis Egyptii z. 1. et decoques per dies 3.
+
+## 156\. Tinctio lactei coloris.
+
+In libram vitri mittas stanni z. 3. et decoques per dies 2.
+
+## 157\. Tinctio sanguinea.
+
+In libram vitri mittas cinnabarin z. 3. et decoques per 2. dies.
+
+## 158\. Tinctio rubea.
+
+In libram vitri mittas psimithin z. 2. et decoques per dies 6.
+
+## 159\. Tinctio alithina absque igne.
+
+Tingues subtiles vitreas et ungues dracontea anamemigmemis, et fiet sic rubea.
+
+## 160\. Minus tincta melini coloris.
+
+In libram vitri theaspis terra z. 2. et decoques dies 3.
+
+## 161\. Rubeum.
+
+In libram vitri caucucecaumenon z. 2.
+
 ...
