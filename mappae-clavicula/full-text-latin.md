@@ -1108,4 +1108,272 @@ In libram vitri theaspis terra z. 2. et decoques dies 3.
 
 In libram vitri caucucecaumenon z. 2.
 
+## 162\. Anthimis de damia (? danria).
+
+Amor aquæ libra 1. naptæ libra 1. sulfuris vivi libra 3. picis aridæ ⍮ 4. lac ferri libra 1. semis. Ista omnia arida tere bene, et cum liquidis, pulvere subtilissimo facto, commisce: et una hora coque, et fiet ignis; sed non secundum priorem virtutem, sed modice minus.
+
+## 163\. De lapide olimpio.
+
+Lapis olimpius nascitur in petrosis locis, et est duorum colorum, niger habens guttas albas: percussus sole, sicut sulfur, ignem emittit.
+
+## 164\. De lapide flavite.
+
+Lapis flavites nascitur in terra nigra: dum autem a sole percussus fuerit, infusus fiet prassinus, ex quo nascitur prassinus color.
+
+## 165\. De lapide rubeo.
+
+Lapis rubeus nascitur in diversis locis; de quo et mortarium, quo aurum teritur, fiet.
+
+## 166\. Compositio lulacis.
+
+Flores* caucallide, et flores elinii mundi, magma violæ duarum supra dictarum, _i. e._ de viola majore partem 1. de minore partem 1. Magma autem tale, non secundum compositionem lazurin, nisi tantum cum aqua; de lilio autem veneto majore partem 1. ista magmata fiant, ambo in unum detrita utiliter, et reponantur in vase vitreo uno, magmata duo. De viola enim minore, facias semotim magma; et de lilio veneto majore, semotim facias magma. Deinde caucallide et elinii, singulorum partes 2. et de viola minore partem 1. et de majore partem 1. aluminis Egyptii spumati in libram de magma 4. specierum solidos 2. saponis ex axungia sine calce z. 1. Ista decoques modicum, et tere guati exnerviati libram 1. et commisce guatum cum coctione magmatis; et tere diligenter donec pulvis fiat, et repones ad solem, ut siccetur. Istud est lulacin leve, et lazuricunta, et boni coloris, non habens pessum, quia ex floribus est compositum.
+
+*) Clores in MS.
+
+## 167\. Compositio lazurin.
+
+Flores neulacis (quod Grecè "tapsia" dicitur, alii "cameleonta" vocant) colliges, et repones: deinde ungue manus tuas sapone cocto sine calce, et defrica inter manus tuas ipsos flores, et pones in vas. Post hoc, iterum unctis manibus ex ipso sapone, eosdem flores defricas diutius, et iterum repones; et hoc facies donec ipsi flores consumentur. Post consummationem autem florum collectam confectionem cooperi diligenter in vase, in loco calido, donec eam veneti coloris esse noscas. Cum autem veneti fuerit, non operies illud nisi tantum panno. Deinde sume folia viridia de uuato (_sic_) exnerviato, et decoque cum urina expumata, donec solvantur predicta folia, et tamdiu coque, quoadusque consumetur urina, et pinguescat ipsa coctio; et mitte refrigerare. Deinde sume de floribus neulacis libras 3. de cocto autem guatto libras 2. de cinnabarin dimidiam z. et commiscens tere munditer, et trita cooperta in mortario stare permitte. Deinde ostreas diligenter mundatas intus et foris, et lotas a sordibus et limo, ponas in cacabo novo, et decoque usque ad pulverem; et refrigeratas tere diligenter, semotim: tollis ex ipso pulvere libram 1. et iarin mundum: mitte in aliam urinam dispumatam, terens diutius, donec turbetur, et viridescat urina, et ex eo commisce in priori mortario cum supradictis speciebus, et bene defricans repone in vase novo ad solem, una die. Postea coopertum vas oblinies diligenter, et pones in fornacem vitrarii superiorem, die 1. et exiet lazurin.
+
+Flores neulacis, cum sapone fricatos, ut supra diximus, infunde in urina spumata, et vase cooperto pone in letamen, ut fragidet. Similiter folia guatti infunde in urina spumata; et reposita in letamen cum fragidaverit, eice de ipsis in mortario, auferens ex ipsis omnia nervia, et tolles ex ipso guatto libram 1. et de flore neulacis libras 2. et papaveris z. 2. et commixta tere, addens cinnaberin ⍮ dimidiam, et iarin ⍮ dimidiam, urinæ expumatæ ⍮ dimidiam, tere diligenter, et mittes in cacabum novum; lento igni decoque, donec consumetur et pinguescat, et fiet lazurin modicum porfirizonta.
+
+Flores neulacis infunde aceto, et compositos in vase cooperto, ut predictum est, pone in letamen, ut fragident. Similiter guattum exnerviatum tere diligenter, et in vase novo aceto infusum operies in letamine, donec fragident ipsa folia. Postea sume de guatto libram 1. de lacca decocta in urina spumata ⍮ 1. et ex flore neulacis libram 1. de pulvere ostreæ mundæ, et lotæ, sicut supradictum est, z. 4. His omnibus, in mortario tritis, decoctione herbæ celidoniæ, quam in urinam coxeris, libram dimidiam adde, et croci ⍮ 1. Omnia trita, et in uno vase cooperta, et in letamine die 1. posita, tolles, et ad solem siccabis, et uteris.
+
+## 168\. Lazurin aerium.
+
+Tolle florem de neulace, et defrica cum sapone, sicut supra docuimus, coopertum in vase, repone in letamine. Similiter facies de guatto enervato; et post dies, cum putruerint, tolle de neulace et guatto z. 1. et terens subtiliter in mortario, addens spimithin mundi ⍮ 1. et lulacin confecti et mundi ⍮ semis, cinnaberin ⍮ semis, et urinæ expumatæ cum vitriolo trito ⍮ 4. urinæ autem libras 10. et postquam residererit (_sic_) vitriolum, tere ipsam urinam in mortario, quantum sufficit, et commixturam dimitte residere 2. dies. Post hoc tolles urinæ expumatæ mundæ libras 3. gallæ tritæ z. 1. commiscens dimitte infundere die 1. deinde mitte ex ipsa iotta libram 1. et, trita bene, dimitte residere ad solem, et fiet lazurin aerium.
+
+## 169\. Item, aliud.
+
+Tolle Lazurin primum ⍮ 1. cinnabarin ⍮ 1. compone ut supra.
+
+## 170\. Lazurin carnei coloris.
+
+Psimithin mundi triti libram 1. Lazurin z. 1. cinnabarin ⍮ 1., compone ut supra.
+
+## 171\. Lazurin melinizonta.
+
+Sume neulacis flores unctos ex sapone, ut supra monstratum est, libram 1. et pone in letamen, et guatti exnervati, cum sapone, ut supra composuisti, atque in letamine macerata libram 1. Postea tritis in mortario adde cinnabarin z. 1. herbæ liciæ excoctæ, quæ coquenda est cum urina expumata, donec veniat ad 3. partem, et donec pinguescat; ex ipsa pinguedine trita libram 1. Hec omnia commixta pone ad solem, et fiet lazurin melinizonta.
+
+## 172\. Alia lazurin.
+
+Cinnaberin ⍮ 1. siricum ⍮ 1. lacce coctionis ⍮ 1. lacca autem coquitur sic; Laccam subtiliter tritam coque in urina expumata bene lento igne, et ex ipsa coctione sume libram 1. lulacin solidum 1. et trita similiter, dimitte residere, et siccari ad solem.
+
+## 173\. Item.
+
+Cinnabarin ⍮ 1. lulacin solidos 2. psimithin solidum 1. trita bene, sicca ad solem.
+
+## 174\. Compositi(o) (_sic in MS._) vermiculi.
+
+Ex succo florum papaveris expressi ⍮ 1. cinnaberin ⍮ semis, lulacin solidum 1. hec omnia, commixta et trita, sicca ad solem.
+
+Cinnaberin vermiculum libras 4. vermiculi terreni, qui in foliis ceri nascitur, libram 1. de coctione laccæ supradictæ libram 1. urinæ expumatæ l(ibras) 10. et sumptum utrumque vermiculum subtiliter tritum, mitte in cacabum in ipsa urina in lintheolo raro; delava vermiculum in cacabum, in quo urina decocta est, et iterum tere coctum, et delava in urina cacabi; et sic facies donec consumetur coccus totus. Deinde coques diligenter commixtionem illam, et exagitas: tunc sume ostream mundam, et bene lotam, et mittes eam in pinnatam bene coopertam, ponasque in furnum, donec refricetur, et postea tere subtiliter: atque ex ipso pulvere libras 3. mittas in coctionem predictam: bulliat bene usque in tertio. Deinde repone ad solem, ut pinguescat.
+
+## 175\. Pandius.
+
+Mitte vermiculum libram 1. coccarin libram 1. (Coccarin nascitur, sicut supra dictum est, in foliis ceri) cinnaberin ⍮ 1., lazurin primi ⍮ 1. commisces; tere diligenter in mortario, et mitte de urina expumata libras 15. coques in cacabo novo, donec ad dimidiam partem veniat ipsa urina. Postea pisa grana, cum cinnaberin trita, in lintheolo delava, sicut supra continentur, donec consumetur.
+
+## 176\. Item, pandius.
+
+Vermiculi libr. semis, de alio vermiculo ⍮ 6. psimithin ⍮ 6. lazurin ⍮ 6. hæc, diligenter trita, mitte in cacabum cum urina dispumata libr. 10. et mittens in lintheolo raro coccum delava in urina, et iterum delava donec expendatur coccus; et decoques donec veniat urina ad dimidiam partem, et repones ad solem.
+
+Lulacin libra 1. cinnaberin libra 1. psimithin libra 1. ficarin ⍮. 2. hec omnia trita, et cum aqua tepida mixta, pones ad solem, donec siccentur.
+
+Lulacin libra 1. cinnaberin principalis libra 1. lazurin libra 1. ocrea mundissima libra... quianus libra 1. hec omnia, bene trita, et cum aqua tepida mixta defricans, pones ad solem donec siccentur.
+
+Lulacin ⍮ 3. psimithin ⍮. 9.
+
+Lulacin ⍮ 1. ficarin ⍮ 1. quiani ⍮ 1.
+
+Lulacin libra 1. quiani libra 1. psimithin libra 1.
+
+Quiani libræ 2. psimithin libra dimidia; commixta tere cum urina despumata, quod sufficit; pone ad solem.
+
+Quiani libra 1. ficarin libra 1. ocreæ libræ 2. omnia trita commisces cum urina dispumata et repones ad solem.
+
+Quiani libra 1. de pulvere caucucecaumeni triti ⍮ 1. ficarin ⍮ 1. ocree ⍮ 1. omnia trita et commixta cum urina dispumata pones ad solem.
+
+Cinnaberin libra 1. herbæ luciæ coctionis libra 1. croci clari mili libra 1. ficarin libræ 2. quiani libra 1. omnia trita commisces urinæ expumatæ, (_sic MS._) et sicca ad solem.
+
+## 177\. Item.
+
+Cinnaberin ⍮ 6. et iotta coctionis lacce ⍮ 6. croci ⍮ 6. omnia trita et commixta repones in vase vitreo ad solem per diem, donec siccetur, et per noctem collige aput (_sic_) te.
+
+## 178\. Item.
+
+Cinnaberin ⍮ 1. incausti sp̃erii 3. ⍮ 1.* teres, et commisces; repones in vase vitreo, pones ad solem, et de nocte colliges; et ita facies, donec siccetur.
+
+*) ? If this should not be, incausti ⍮ 3. sp̃erii ⍮ 1.
+
+## 179\. Item.
+
+Cinnaberin ⍮ 2. psimithin ⍮ 1. ista teres bene in mortario, et commisces cum urina expumata, et teres utiliter, vitreoque in vase repones, et cooperies in letamine per dies multos.
+
+## 180\. Item.
+
+Terræ viridis ⍮ 2. cinnaberin ⍮ 1. trita commisces, ac repones quemadmodum et primum commixta cum urina expumata.
+
+## 181\. Item.
+
+Terræ viridis libra 1. cinnaberin ⍮ 1. psimithin solidos 2. Ista teres in mortario cum urina expumata, et repones in vase vitreo, et pones ad solem, ut prius.
+
+## 182\. Item.
+
+Terræ viridis libra 1. ocreæ ⍮ 1. cinnaberin ⍮ 1. trita, et commixta omnia cum urina expumata, mittes in vase testeo, et operies in letamine per dies 20.
+
+## 183\. Pandius ocrei coloris.
+
+Ocreæ mundæ libra 1. cinnaberin ⍮ 1. ficarin solidos 3. omnia trita in mortario commisces cum urina expumata, et repones in vase vitreo, et repones ad solem, donec siccetur.
+
+## 184\. Item.
+
+Lulacin, quianus, cinnaberin, lacca, equis ponderibus, trita et commixta pones in vase vitreo, et repones ad solem, donec siccetur.
+
+## 185\. Item.
+
+Iotta, de coctione conchilii, libra 1. Sirici mundi ⍮ 1. omnia trita, et cum modica urina commixta, mitte in vas vitreum, et sicca ad solem.
+
+## 186\. Item.
+
+Iotta conchilii, iotta de lacca, ana ⍮ 1. --- Teres primum ⍮ 1. cinnaberin, et post hoc commisces iottam conchilii, et iottam laccæ, et repones in vase vitreo ad solem, donec siccetur.
+
+## 187\. Item.
+
+Iottam conchilii ⍮ 1. cinnaberin ⍮ 1. croci ⍮ 1. iottam herbæ luciæ ⍮ 4. omnia decocta in urina commixta praso sextarii.
+
+## 188\. Item.
+
+Cinnaberin ⍮ 1. iotta conchilii ⍮ 1. coctio rubiæ ⍮ 1. coctio finisci simul; teres primum cinnaberin semotim; post hoc commisces omnia, et repones in vase vitreo, sicut et cetera.
+
+## 189\. Item.
+
+Tolles iottam rubiæ, et addis gallæ ⍮ 3. teresque utiliter; tolles ex iotta rubiæ libram 2. et mittes in vase vitreo cum ipsa galla trita, et dimittes per 2. dies infundi: post hæc colas, et addas calcitarin z. 1. cinnabarin solidos 2. utrumque teres, et mittes ea cum supradictis rebus, et decoques donec veniat ad tertiam partem.
+
+## 190\. Compositio viridi incausti.
+
+Accipe grana matura arboris caprifolii (hic est, Anglicè, "gatetriu,") et in mortario bene contere; post in vino diligenter fac ebulliri, ferrum eruginatum decoctioni simul adiciens. Hoc est viride et fulgens incaustum. Quod si vis pannum, vel corium viridem habere, pincello hinc desuper illine. Si vero vis ut nigrum sit, adde huic compositioni solito atramentum. Quod si vis istud, vel aliud aliquid, incaustum facere, ne decurrat, gummam cini vel prini in decoctionem pone, et simul coque.
+
+## 191\. Ad temperandum de ivired (_sic in MS. pro_ "viride.").
+
+Accipe herbam, que dicitur "greningpert," et ebulli bene cum cervisia aut vino, adeo ut cervis(i)a crocea sit de herba; et postea cola; deinde pulverem de viridi Greco mole cum ipsa cervis(i)a, et tantum pone de cervis(i)a, ut satis sit. Postea stet in baccili, vel cupero vase, contra solem ad maturandum.
+
+Laminam cupri habeto, et subtilem pulverem de smeril, et, cum aliquem lapidem secare volueris, serram tuam parum humectabis saliva tua in medio, et pulverem supponas, tenendo fortiter, vel juxta, et serram adhibebis serrando lapidem.
+
+Hoc modo polies. Pone pulverem de smeril super tabulam plumbeam, et parum de saliva humecta, et paulatim tritando, sepe respice vel ne consumatur. Secatum, hoc modo colorabis. Bisum cauculum tamdiu crema, donec in pulverem redigatur; sicca ad diem, inde fac pulverem subtilissimum, vel de levi pumice, vel de cristallo cremato fac subtilem pulverem; et extende corduan super tabulam, et cum pulvere et sputo tuo super corduan fricando lapidem colorabis. Si pumicem non habes, de antiquis lateribus, unde scutellæ fiebant, fac pulverem, qui tantundem valet; vel cum cupero filo, sine detrimento, colorabis.
+
+## 192\. Quianus autem nascitur sic.
+
+Quianon uualtalasion nascitur enim in locis humidis. Nascitur enim ex rore, estivo tempore; colligitur autem sic. Tollens colliges eam, et repones ad solem, donec siccetur: postquam desiccabitur, teres bene; deinde tolles cocleam marinam majorem, et lavas bene, et terens mittes ex ipsa coclea libras 30. de uualtalasion libras 2. sapone libras 10. lazurin ǯ. 3. de sapone autem ex oleo leviter cocto partem. Omnia commixta et trita repone in vase novo testeo, et operi de letamine, et dimitte diebus 60.
+
+Perpensum ante commixtionem specierum marinarum tritum bene commisces, secundum mensuram coctionis. Quiani libra 1. psimithin ⍮ 1. ista trita et commixta cum urina expumata. Quiani libra 1. cinnabarin ⍮ 1. Hæc trita misce cum urina expumata. Hæc omnia exposuimus ex terrenis maritimis floribus, vel etiam herbis; ita exposuimus virtutes vel operationes earum in parietibus, lignis, lintheolis, vel etiam pellibus, et omnibus pictorum instrumentis, ista memoramus omnium operationes, qui in parietibus simplicem, in ligno cere commixtum suscepit lignum simplicem cum unctione collon commixtum. In pannum vero cere commixtis coloribus: in pellibus unctio collon commixtum.
+
+Primum metallum, ex quo fit aurum, terra rufa est, amoydis subrubicunda prope ad juxta stantem illi terram est hæc, et alia similis, et dum incenditur perdit colorem, et non est arenosa, sicut illa prior. Nascitur in solanis lucis ea terra, et tale est metallum auri.
+
+Metallum vero argenti viride est.
+
+Metallum autem eramenti petra est viridis, quæ, dum percutis cum pirepolo, ignem emittit.
+
+Auricalci autem petra est melina, et eodem modo ignem emittit. Metalli lapis est colore ipso gatizon.
+
+Plumbum autem est terra fusca; lapis autem qui in ea invenitur viridis est.
+
+Harena est, undu vitrum metallizantur; est enim lapis vitrei coloris.
+
+Vitriolum, unde fiet terre ogrizos sunt cum cretæ, ubi verno tempore guttam colligunt ipsam, et decoquetur, ex ipsa terra fiet calcitarin; quæ autem arida, vitriolum.
+
+Aluminis autem metallum est terra florens.
+
+Eitarin terra est alba, facilis ad pisandum.
+
+Sulfur ex terra nascitur, et ipse incenditur locus: coctum autem ex terra sulpherea oleo mixta coquitur.
+
+Nitrum est sal, qui nascitur in terra, fiet in laminas in tempore cavatur.
+
+Sal scistis nascitur similiter.
+
+Affronitrum, verò, nascitur in loco nitri, priusquam gelet: componitur autem et aliud ex nitro; principale autem spuma, alba, ut nix. Compositum vero prius fuscum est, habet tamen eandem virtutem.
+
+Terra sulphuritana in eodem loco, ubi sulphur, nascitur.
+
+Argentum vivum nascitur ex terra. Nascitur et aliud ex metallo argenti in conflatione.
+
+Auripigmentum metallum est terre; gleba est naturalis quæ in Cipro insula invenitur in metallicis, colore sub auroso, intus habet venas descissas, ut alumen scissum, et in modum stellarum fulgentes.
+
+Prassinus terra est metallizans.
+
+Lulax componitur ex terra et herbis.
+
+Lazurin compositum est.
+
+Quianus compositus est.
+
+Ficarin compositum est.
+
+Iarin eraminis est flos.
+
+Psimithin plumbi est flos.
+
+Ocrea terra est pandia, omnia colores, omnia compones.
+
+Caucecucaumenum ex eramine fit.
+
+Cinnabarin ex argento vivo fit.
+
+Siricum fit ex psimithu; fit et ex plumbo.
+
+## 193\. Composita herbarum, terræ, et lignorum.
+
+Chriscollon arbor est, non alta, melinum habens interiorem lignum. Nucis cortices et frutices; Cilicinæ cortices; Meliæ cortices; Ulmi cortices; Celsæ cortices.
+
+Hec omnia tin(c)tiones sunt. Rubina silvatica, luza est. Monoclosus, galla glandis est. Drantalasis, dissobo gauzo arena est.
+
+Resinæ omnis species ex pino et sapino coquitur. Pice recocta pecola semel: Cedria ex ligno coquitur cedrino: Mastice ex lentisco nascitur. Zigea ex zigeo. Gumma ex atrinia. Secunda gumma, ex amigdala. Lineleon ex semine lini, sicut oleum ex oliva, fit. Oleum lenticinum ex lentisco. Collium ex mari. Conchilium ex mari. Sal ex mari fit.
+
+## 194\. (_De auri pondere._).
+
+Omne aurum purum cujuslibet ponderis omni argento similiter puro ejusdem tamen ponderis densius est parte sui 24. et insuper 240. quod ita probari potest. Si purissimi auri libra cum eque puri argenti simili poudere sub aqua conferatur 11. denariis, id est 24. et 240. sui parte, aurum gravius argento, vel argentum levius auro, invenietur. Quapropter, si opus aliquod inveneris formatum, cui argentum per commixtionem inesse videatur, scireque volueris quantum auri, quantumve in eo argenti, contineatur, sume argentum sive aurum, et examinato inspectione pondere non minus pensantem massam de utrovis metallo fabricato, atque utrumque opus, scilicet, et massam stantem lancibus imponito, aquisque inmergito. Si argentea fuerit, allevato opere, aurum inclinabitur: hoc tamen ita fiet, ut quot partibus inclinatur aurum, totidem partibus sullevetur argentum; quia, quicquid in ipso opere fuerit, sub aqua preter solitum ponderis ad aurum, propter densitatem, pertinet; quicquid autem levitatis ad argentum, propter raritatem, conferendum est. Et ut hoc facilius possit adverti, considerare debes tam in gravitate auri, quam in levitate argenti, denarios 11. signi(fi)care libram, sicut prima lectionis hujus fronte prefixum est.
+
+## 195\. Compositio nigelli ad aurum.
+
+Sume duas partes almenbuz, _i. e._ argenti, et terciam eris, et aliud tantum alquibriz, _i. e._ sulfur, et aliquid majus, et mitte in fornace in caniculum, ut assetur, et tunc paulatim misce supradicto alquibriz: cum fuerit bene assatum, et misculatum, extrahe foras, et mitte in rigellum, aut in quovis loco, et stari calidum percute ut extenuetur, et dimitte frigesci. Postea super incudem cum tudone (_id est_, martello) diligenter frange minutissime, ut pulvis fiat; et mitte in coculam: postea detempera atincar, _i. e._ burrago, cum aqua; et cum hoc distempera nigellum, et mitte ubi vis; et desuper natroni pulverem asperge, et mitte super carbones usque quo bene currat; et ubi non vis ut currat, mitte cretam distemperatam valde subtilem. Ita factum, extrahe de fornace ut frigescat, et cum lipsatorio acerino lipsa, sed sepe aliquantulum super carbones calefac, et ita usque quo bene se habeat. Postea rade nigellum usque ad almenbuz, et iterum lipsa, ita ut melius scis, et dimitte.
+
+## 196\. Item, nigellum ad almenbuz.
+
+Sume almenbuz, et aliud tantundem eris, et tantum alquibriz, quantum pensant inter almenbuz et es; et fac, ut superius dictum est de auro.
+
+## 197\. Item, ut superius, ut colorem habeat deauratura.
+
+Sume urinam, et aceti modicum, et allium bene tritum, et alquibriz, ut estimas, et similiter misce in concham eream; et ibi mitte 2. laminulas, unam de cupro, et aliam de arrazgaz (_id est_, plumbo) et, cum bene ferbuerit, extrahe, et intingue in aquam frigidam, ita ut fundum non tangat; sed sepe mitte, et trahe, usque quo bene coloret.
+
+## 198\. Ut dulce fiat aurum, ita fac.
+
+Mitte aurum in caniculo in fornace, et misce cum eo alquibriz, et tincar, et simul confla; et fac rigellum, et mitte in salem, postea in aquam, et opera.
+
+## 199\. Item, si vis aurum ponere in pellem.
+
+Si vis aurum ponere in pellem, mitte antea claram de ovo 2. aut 3. vices, in almenbuz 4. in alcazir (_id est_, stannum) 8.
+
+## 200\. Si vis colorare almenbuz.
+
+Si vis colorare almenbuz, sume acetum, et salem, et simul misce, et ibi infunde almenbuz calidum; postea accipe carbones tritos, et lipsa cum panno, aut cum setis.
+
+## 201\. Si vis nectere eramen, aut auricalcum.
+
+Sume duas partes eris, et tertiam stagni: confla simul in fornace, et bene misce; extrahe inde ut frigescat, et inde fac pulverem subtilissimum super ferrum, aut super petram duram, ipsum pulverem misce cum oleo, non nimis rarum nec spissum. Ex hoc unge juncturam eris, aut auricalci, et super asperge pulverem natroni (_id est_, alatroni), et mitte in ignem, ut calescat, et cum fuscello frica, ut bene conectet.
+
+## 202\. Conexio auricalci.
+
+Natroni denarium 1. penso, Cream vini assam quantum estimas, boras denarium 1. penso, cum aqua confice, et inde line auricalcum: postea supersparge pulverem stanni assi: postea subtus carbones in fornace calcfac sicut aurum, usque quo bene conectet.
+
+## 203\. De stagno conjunctionem. (_sic._)
+
+Sapone partem 1. resinæ pini partem 1. natroni partem 1. borax aliquid. Ex his unge stannum, et leviter calefac, sicut scis, usque quo conectet, et calidum in aqua merge.
+
+## 204\. Deauratio facilis.
+
+Accipies laminas stagneas, contingis aceto et alumine, et conglutinabis glutine cartineo; deinde sumis crocum et gluten purum (_id est_, perspicuum et limpidum) infundis aquam cum aceto, et limaturis igne levi coque: cum effluxerit gluten, inunge stagneas laminas, et apparebunt tibi aureæ.
+
+## 205\. Ad gluten stanni.
+
+Duas partes axungiæ, et terciam resinæ, et limaturam stanni pariter mixta, si leviter calefeceris ad ignem solidare poteris.
+
 ...
