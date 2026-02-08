@@ -1376,4 +1376,82 @@ Accipies laminas stagneas, contingis aceto et alumine, et conglutinabis glutine 
 
 Duas partes axungiæ, et terciam resinæ, et limaturam stanni pariter mixta, si leviter calefeceris ad ignem solidare poteris.
 
+## 206\. Inauratio* vase nigrum impingere, ut putes inpisatum esse.
+
+Eris rubri et plumbi partes equales confla, et asperge sulfur vivum, et cum fuderis, patere ut refrigeret; mittis in mortarium, teris, adicis acetum, et facis atramentum de quo scribitur, pinguedine,* et scribe in auro et argento, quod velis, et cum refrigeraverit, calefacito, et erit inpistatum. Conflabitur autem ita. Carbonem sculpis, ita mitte argentum et es; confla, et cum liquescit admisce plumbum, deinde sulfur; et, cum miscueris, diffunde, et fac ut predictum est.
+
+*) Inaurato, MS. Compare the title given in the List of Chapters.
+
+*) Some words appear to have been omitted here.
+
+## 207\. Inductio exaurationis petalarum.
+
+Petala fiant de stanno; fiant autem sic. Solves bene ipsum stannum, et fundes paulatim in marmore, et facies petala subtilia, vel cum malleo, et pones sicut crisopetala; et decoques herbam celidoniam, ex ipsa coctione mitte uncias 3. croci libras 3. auripigmenti libram 1.
+
+## 208\. Tinctio stagnee petale.
+
+Tolle croci mundi unciam 1. pigmenti optimi fissi uncias 2. mitte gummi dimidiam, et lineleon unciam dimidiam, et aquam pluvialem aut dulcem; commisce, ut bulliant simul. Commisce confectiones bene terens, tollensque cum spongia ungues ipsam petalam, et cum desiccaverit, secundo unge, et desiccatam cum onichino defrica, ut splendeat.
+
+## 209\. Aurum probatum facere.
+
+Eris partes 4. argenti 1. simul confla, et adice auripigmentum non ustum, sed crudum, eurem partes 4. et, cum calefeceris, sinito ut refrigeret, et mitte in patinam. Obline argilla, et assa, donec fiat cerosa; tolle, et confla, et invenies argentum. Si autem multum assaveris, fit elidrium; si partem 1. auri adjeceris, fit aurum optimum.
+
+## 210\. (Ad solidaturam argenti.)
+
+Ad solidaturam de argento 2. denarios pensante de argento, et 2. de eramine, et una medalla de stanno.
+
+## 211\. Ad solidaturam argenti non boni.
+
+Accipe de bono argento 3. denarios ponderantes, et 1. obolum de stanno.
+
+## 212\. Ad bonum argentum solidandum medium oboli.
+
+De commixtione puri et fortissimi xknk cum 3. qbsuf tbmkt, cocta in ejus negocii vasis, fit aqua, quæ accensa flammans incombustam servat materiam.
+
+## 213\. De planitie, seu altitudine mensurandi.
+
+In primis, orthogonium hoc modo compones. Tres virgulas planas et rectas facies, primam 3. unciarum, vel pedum, seu ulnarum; secundam 4. terciam 5. Illam, quæ trium mensurarum est in altum dirigas; illam, que 4. in planum colloces; illam, quæ 5. a summitate illius, quæ in altum dirigitur, usque in summitatem illius, quæ in planum collocatur, deducas. Sic angulatim illæ tres virgulæ conjunctæ orthogonium faciunt. Virgula autem directa vocatur cathetus: collocata, basis, deducta, ypotemusa. Deinde baculum accipias, cujus altitudo usque ad oculum tuum perveniat: huic orthogonium in medio basis effigias; postmodum oculum angulo opponas in quo junguntur basis et ypotemusa. Intuitumque ad illum angulum dirigas quo jungunt ypotemusa, et cathetus; et progrediendo ac regrediendo tamdiu perambules, quousque intuitus, secundum estimationem, angulum ypotemusæ et catheta jungat summitati illius rei, cujus altitudinem queris. Hoc expleto, ab eo loco in quo tunc stas, usque ad pedem rei illius, metire spatium areæ. Ex hoc spatio quartam partem subtrahe. Reliquas tres partes, superaddita baculi mensura, quem in manu tenebas, pro altitudine teneto. Hoc autem est caute videndum, ne in aliquam partem declinet ortogonium baculo superposito; et, ut declinatio deprehendi possit, a medio ypotemusæ pendiculum demittito. Hoc, si medium basis tetigerit, nullam declinationem orthogonii esse scito.
+
+## 214\. De lapide orcho, vel orebo.
+
+Lapis orchas, quem vocant Alexandrini cathmia, nascitur in humidis locis; est autem facilis ad pisandum. Est (? enim) niger, ingreditur in solidatura argenti. (_sic._)
+
+## 215\. De lapide Atriathe.
+
+Lapis atriathis, quem vocant leocopandium, est enim terra prassinus (_sic_) in qua nascitur. Crescente autem terra, et reflorente, florem album rotundum, quadrum, acutum, ginnit. Post hoc stringit eum, et fiet lapis; florem constringit terra ipsa prassina, et fient petræ. Aliæ aurei coloris, melini, aliæ pandii, aliæ candidi. Quæ, dum percussæ fuerint, emittunt ignem, et ex ipsis egreditur argentum vivum. Aprili mense, et Maio, excalescente terra, abundantes flores cavas humidum locum usque ad geniculum, et discooperies terram, et invenies flores veteres duratos, et adherentes terræ, factos lapides. Alii enim floruerant et induraverant, et terræ non adheserunt, sed remanserunt ut margaritæ, eo quod non conjunxerunt tempus. Alii floruerunt competenti tempore, sicut nix alba, quas (_sic_), cum inveneris, ita leva cum vana terra et floribus, et mittis in pila marmorea, et cum impleveris, mittis aquam, et misce bene, et terram, quæ in ea est, jacta foras, et remanet argentum vivum. Exiet et de metallo argenti, quando inchoat accendi, percurrit, et colligunt illud artifices.
+
+## 216\. De lapide fumice.
+
+Lapis fumice nascitur in universis locis: tritus ingreditur in caccabum novum, et in fornacem figuli mittitur, et coquitur bene, et cooperitur diligenter, ut non ingrediatur aliqua immundicia. Post hoc eicitur, et teritur, et in compositione auri pro gemma ingreditur, in temperatione de calaina.
+
+## 217\. Compositio auripigmenti.
+
+Auripigmenti triti mundi partem 1. argenti vivi z. 1. auri tremissem 1. Aurum battis, et facies petalam, et mittis ipsam petalam et argentum vivum in trullam ferream, et incendes, donec solvatur aurum, et misceatur cum argento vivo: et postea mittes auripigmentum in ipsam trullam modicum, et commixtionem argenti vivi, et coques bene, et exagita, donec fiat pandius.
+
+## 218\. Gluten auri ad fistulas.
+
+De crisoclabo astici z. 1. caucucecaumenum z. 1. affronitri ʒ. saponem ex oleo sine calce z. 1. vitriolum solidos 2. aceti dimidiam ʒ. aquæ z. 1. comminue, et commisce semotim eramen; cetera in unum commisce, et pone modicum, ut tepescat gluten de canilis crisoclabi.
+
+## 219\. Inauratio eraminis, argenti, et auricalci, crisophargia de petalis.
+
+Enencaus, sive encause, prima argenti et eramenti et auricalci. Battis aurum, et faciles (? facies) petalas subtiles ac tenues, et post mittes argentum vivum, et ipsam petalam solves, donec solvatur aurum ipsum. Si autem minuitur ipsum argentum vivum, adde plus, donec coquatur ipsum aurum. Deinde mittes in testam, et cum alia testa teres usque quo attenuetur et commisceatur aurum cum argento vivo; et rade vas, quod habes inaurare, et perunges modicum, et calefacies, et exprimis cum lintheolo mundo, ac totum exterges. Quod autem remanet mittes in ignem, et propria similiter, et unam et duas inaurationes in vas novum mittas. Si autem leviter semel unctum fiet, postea defrica illud ferro candente, et coloratur. Deinde cum micis panis defrica, donec elimpidet colorem.
+
+Similiter fit et inauratio ferri, sed primo aluminatur. Tolles partem vitrioli, et modicum salis, et aceti acerrimi, in caliculo; et exinde ferrum linies, quod habes inaurare, et hic est prima inauratio.
+
+Crocum verissimum tolles, et radices de ipso flore diutius tolles ovum, et aperiens primum proice quod exiet; sequens albumen suscipe in ipsum crocum, et terens leviter unge quod vis, et superpone petalam.
+
+Tolles argentum vivum, commisce cum auro, sit inter rationem, et terens bene mitte in caliculum; et pone in prunas, donec siccetur vivum argentum, et remaneat aurum, quod mittis in mortario; cum pistillo ferreo teres bene, donec pulvis fiat. Tollas crocum, teras in unum; si uncia erit auri croci solidi sint 2. mittes in aquam, donec coquantur. Similiter mittes in compositione ipsam aquam de gummi; teres utiliter, et pones in ampullam, et suspende ad solem; et tolle de sole ubi volueris. Cum ipso calamo, cum quo scribis, scribe quod vis. Similiter argentum et eramen compones.
+
+## 220\. Quo modo fiat sulfur coctum.
+
+Coques lardum oleo, et ex ipso tolle libras 2. et sulfuris tere libras 3. mittes in cacabo ipsam terram tritam, et bullies secundo, vel tertio, et fundes super laterem.
+
+## 221\. Compositio affronitri secunda, quæ queritur ad gluten argenti vel eramenti.
+
+Nitrum Egiptium libram, 1. saponis de axungia, sine calce, libram 1. teres utiliter, et commisces. Deinde pones ad solem, vel in calido loco; utile est ad gluten auri: ad argentum autem propter mollitionem argenti componitur mollior, id est, duas partes de sapone, et unam de nitro.
+
+Eraminis partes 2. plumbi partem 1. Tolles laminas eramenti, et derade bene, et suspende super acetum, et collectionem quam facit rades, et colliges.
+
+Iarin partes 2. vitrioli mundi z. 4. aluminis Egiptii z. 2. Ipsum autem guattum semotim pisa munditer, Iarin vero, et vitriolum, et alumen in unum, et tolle saponem ex oleo, sine sale, dimidiam unciam, et commisce in ipsa tres species. Postea pisas commiscens diligenter cum sapone. Deinde tolle guattum ipsum pisatum, ut oportet. Commisce ipsum cum supradictis speciebus, et defricans diligenter, et dimittes diem unam requiescere.
+
 ...
