@@ -1586,4 +1586,46 @@ Mitte es album in fundum caluculi, et in summo vitrum pone, et sic confla illud.
 
 ## 253\. De lacca, quomodo laboratur ad pingendum ligna, seu parietem.
 
+Primitus tere laccam, et inde elige fustes et spurcedinem; deinde mittas in molam, et mole subtiliter: deinde accipies urinam humanam utriusque sexus, et mitte primitus in caldariam, et dimittas bullire, donec totum consumetur, usque in terciam partem; et semper spumam frequenter tolles. Posthæc mittes laccam, et bullire facies; deinde accipies alumen mundissimum, et terens misce in supradicta lacca. Tunc accipies modicum pannum, et tingue frequenter, donec color bonus appareat. Deinde aquam mittas in vascula, et labora: lapidem qui fit in aqua, proice eum, quia nichil est. In libras 5. de lacca mittes aluminis ʒ. 5. urine sextaria decem.
+
+## 254\. De calce et arena.
+
+Preterea scire est necessarium construenti quæ calcis et arene natura sit utilis. Arenæ ergo fossicæ sunt tria grana,* nigra, rufa, cana. Omnium precipua rufa, et melioris meriti. Sequentis est cana; tertium locum nigra possidet. Ex his ergo que compressa manu edit stridorem, erit utilis fabricanti. Item, si panno vel lintheo candidæ vestis impressa et excussa nichil maculæ relinquet, aut sordis, egregia est. Sed, si fasilis (_sic_) arena non fuerit, de fluminibus, aut galera, aut littore, colligetur. Marina arena tardius siccatur, et ideo non continue, sed intermissis temporibus, construenda est, ne opus onerans corrumpat. Camerarum quoque tectoria falso humore dissolvit. Nam fossiles tectoriis, et cameris, et celeri siccitate utiles sunt; melioresque si statim cum effossæ sunt misceantur. Nam diutino sole, aut bruma, aut imbre, vanescunt: fluviales tectoriis magis poterunt convenire. Sed, si necesse est ut maris arena, erit commodum prius lacuna* dulcis humoris immergi, ut vitium salis, aquis eluta suavibus, deponat. Calcem quoque albo saxo duro, vel Tiburtino, aut columbino, fluviali quoque remus aut rubro, aut frongia, aut postremo marmore. Quod erit ex spisso, et duro saxo, structuris convenit. Ex fistuloso vero, aut molliori lapide tectoriis adhibetur utilius. In duabus enim arenæ partibus calcis una miscenda est. In fluviali vero arena, si tertiam partem testæ contusæ cretæ addideris, operum soliditas mira prestabitur.
+
+*) Sic, sed ? pro "genera."
+
+*) ? lacivia.
+
+## 255\. De latericiis parietibus.
+
+Quod si latericios parietes in pretorio facere volueris, illud servare debet, ut, perfectis parietibus in summitatibus, que trabibus subjacebit structura testea cum coronis prominentibus fiat, sesquipedali altitudine, ut, si corruptæ tegulæ aut imbrices fuerint, parietem non penetret pluvia. Deinde providendum est, ut siccis et asperatis parietibus latericiis inducatur tectorium, quod humidis ac levibus adherere non poterit; et ideo tertio debebis eos prius obducere, ut tectorium sine corruptione recipiant.
+
+## 256\. Confectio Saphiri.
+
+Argentum et sulfur incendatur simul; postea claro vitro museo libris 2. et de supradicto safiro ʒ. 3. simul coctum iacintinos facies lapides.
+
+## 257\. Confectio vitri rubei.
+
+Sumes argillam ferri, et coques igne, et postea infundes vinum; et, venam rubeam inveniendo, contunde eam pistillo, mixto cupro; et sic infunde vitrum in fornace.
+
+## 258\. Aliter.
+
+Viridi vitro, cupro mixto, superfundas contusam petram ardennanam.
+
+## 259\. Gluten argenti et auri.
+
+Tolle 2. partes argenti, et tertiam cupri, ac purum staminis adiciens, argentum vel cuprum bene potes conectere.
+
+## 260\. Aliud.
+
+Tolle etiam 3. partes auri, quartam cupri, fundesque illud simul.
+
+## 261\. Aliud gluten stanni.
+
+Duas partes axungiæ, et tertiam resinæ, et limaturam stanni pariter mixta solidare poteris, si leviter calefacis ad ignem.
+
+## 262\. (De) Denario auri.
+
+Tabula cupri, que 10. pollices habeat in latitudine, et totidem in longitudine, denario auri deaurari potest.
+
 ...
