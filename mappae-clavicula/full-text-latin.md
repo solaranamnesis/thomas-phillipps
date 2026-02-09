@@ -1454,4 +1454,136 @@ Eraminis partes 2. plumbi partem 1. Tolles laminas eramenti, et derade bene, et 
 
 Iarin partes 2. vitrioli mundi z. 4. aluminis Egiptii z. 2. Ipsum autem guattum semotim pisa munditer, Iarin vero, et vitriolum, et alumen in unum, et tolle saponem ex oleo, sine sale, dimidiam unciam, et commisce in ipsa tres species. Postea pisas commiscens diligenter cum sapone. Deinde tolle guattum ipsum pisatum, ut oportet. Commisce ipsum cum supradictis speciebus, et defricans diligenter, et dimittes diem unam requiescere.
 
+## 222\. Confectio ejus hec est.
+
+Urinam mundam, et ipsam dispumatam, libram 1. commisce cum ipsis speciebus, et tere diutius. Si est cacabus ferreus, mitte in eum; sin autem, mittes in testeum, et decoques, donec veniat ad tertiam partem: postea tolles gipsum coctum, bene pisatum; mitte dimidiam unciam, et tolle coctionem: commisce cum ipso gipso, et defrica diutius, et mitte in vas. Pone ad solem, et, dum extinxerit, frange speciem, et pone illam siccare.
+
+## 223\. Confectio ficarin.
+
+Tolle laccæ mundissimæ libram 1. et decoque cum urinæ dispumatæ libris 5. et decoque munditer nec dimitte supra modum dispumare, et tolle ossa cancri munda, et incende munditer, et teres quod sufficit. Commisce in lacca, tolle similam infusam in aqua; deliqua bene, z. 1. pinguis autem sit illa deliquatio, et pisa in unum bene (_id est_, ossa cancri laccam), et cum ipsa deliquatione simile commiscens mitte in vas, et desicca ad solem, unde facias ficarin.
+
+## 224\. De metallo vitri, et coctione.
+
+Vitri mundi de massa sume libras 5. limaturæ eramenti absque plumbo z. 2. et mitte in vas novum testeum sufferens ignem, et decoque in inferiore fornace vitrarii diebus 7. et post hoc eiciens confringe minutatim, et interim conflas prassinum tinguens.
+
+## 225\. De metallo plumbi.
+
+Plumbi metallum terra fusca est, nascitur in omnibus locis, plus autem in calidis; et lapis qui in ea nascitur viridis est, sed non subalbidus, metallum autem grave. Probatio autem metalli hec est. Tolle illud, et mitte in ignem; quod, cum bullierit, et solutum fuerit, scintillas emittit. Herba, que in ipsa terra nascitur, semper marcescit, pre calitudine metalli. Colligitur autem sic propter estuationem solis, cavas terram usque ad cubitos 3. altitudine, debilis est ipsa terra; et dum cavatur desiccat, coquitur autem in fornace, quemadmodum et ferrum. Plus autem incenditur plumbum.
+
+## 226\. Alia coctio plumbi, ex ipso metallo.
+
+Ipsum metallum non siccatur, sed continuo ut levatum fuerit, mittitur in fornacem ferri cum carbonibus et lento igni. Non succenditur ante noctem. In nocte autem succenditur usque ad diei quartam horam. Recoquitur autem, ut mundum fiat: missum in fornacem iterum, et ex carbonibus pini, aut abietis, coquitur per horas 3. et operabitur de eo quod oportet.
+
+## 227\. Alia compositio vitri.
+
+Tolle ex eadem arena, et delava propter pulverem, et mitte decolorare, faciesque fornacem vitrarii, et facies 2. folles, et primam operationem vitri decoque, velut picis coctionem: postea tolles illud, prius recoque in fornace, sicut pix recoqui solet.
+
+## 228\. Qualiter pelles tingantur.
+
+Tolle pellem depilatam et lotam utiliter, et ex galla mitte per unamquamque pellem libras 5. aquæ vero libras 21. et inmitte pellem, et exagita die 1. Post hoc lava bene, et sicca. Deinde tolle alumen Asianum, et mitte in calidam aquam; et, cum resederit, funde ex illo aquam; et mitte iterum tepentem aquam, et exagita, et mitte in ipsam confectionem unam, aut duas, pellium, et tolles et lavas illas semel. De vermiculo autem habeat unaquæque pellis dimidiam libram; quarum prima unctio hec est.
+
+## 229\. Tinctio alithina.
+
+Mitte urinam expumatam in cacabum, et pone ad ignem; et vermiculum in mortario tritum ligans in lintheolo raro, mitte in cacabum calentem, et exagita quousque exeat quod exierit de lintheolo; et reliquum quod remanet mitte iterum in mortarium et tere; ligatumque in lintheolo, et in cacabum calentem positum, exagita, donec de vermiculo nichil remaneat in lintheolo.
+
+Postea consue pelles in utris modum, et mitte ex ipsa iotta 1. confectione supradicta per unam quamque pellem libram 1. et dimidiam. Defrica bene, et dimitte totam noctem manere in ipsa confectione. Mane autem iterum confice quantum sufliciat, et, effusa iotta, lava pelles, et defrica. In eadem iotta de priore pelle tinguitur pellis pecorina, _id est_, in ipsa medicatione, in qua pelles caprinæ tinctæ sunt.
+
+## 230\. Pellis rubea tinctio.
+
+In calce jaceat pellis diebus 6. et mitte in sal diebus 7. et in ordeum. Deinde dimitte siccare, et tunc macera; post coque in vino vermiculum, et mitte iottam in folles una hora, et permitte siccari. Pende pellem in cantirio, et rade eam novacula, ex utraque parte; accipe sal cum farina, et melle; de fermento misce simul, ut jaceat ibi una nocte, aut duabus. Suspende ad solem, et macera; tingue eam cum eramine, et macera.
+
+## 231\. Prassinæ pellis tinctio.
+
+Sume stercus caninum, et columbinum, et gallinatium: solve illud in iottam, et mitte in illam pelles depilatas, et conficies eas ibi per duos dies. Post hoc eice eas inde, et lotas dimitte siccari. Deinde sumes alumen Asianum, et, secundum quod supra docuimus de alithina faciendum, de istis facere memento. Deinde sume luzam bene pisatam, coque cum urina, coctam mitte refrigidare. Consue pelles in modum utrium, sicut diximus de alithina, et mitte coctionem in ipsos utres, et confrica bene, insufflans modicum, ut habeat ventum; et confice bene, donec combibatur medicamen. Post hoc refusa confectione, et lotis semel pellibus, iterum sume lulacin 4. ⍮ per singulas pelles, et urinam despumatam libras 6. et commixtum lulacin cum urina, mitte in ipsos utres, sicut prius iottam luzæ misisti; commisce bene, donec combibatur, et consumatur, ipse humor confectionis: et refundens, dimitte siccare quod superfuerit de iotta luzæ, et lulacin, in eo tingue pellem pecorinam, sicut prediximus de alithina; et erit prassina.
+
+## 232\. Item, prassinæ pellis tinctio.
+
+Tolles pelles depilatas, sicut prediximus, et primum in stercore, deinde in alumine, conficies; et ejectas de stipterea consue in folles. Deinde tolle luzacin dimidiam libram, et urinæ dispumatæ libras 10. commisce, et mitte in folles, et confice bene, immisso modico vento, sicut predictum est. Hoc autem per dies 4. facies assidue; post 4. autem dies refunde ipsam coctionem in pelles pecorinas, confice eas per dies 5. et lotas siccari permitte.
+
+## 233\. Melina pellium tinctio.
+
+In tinctione mellina confice pelles, et alumina, sicut prediximus, et lotas post alumen consue in folles: postea sume luza(c)in bene pisatam, coque cum urina bene despumata, et cum refrigidaverit, mitte ipsam iottam in folles; et confice, sicut prediximus, per dies 5. vel 6. et post hoc refundens tingue pecorinas pelles sicut supra docuimus; et post tinctionem lava et sicca.
+
+## 234\. De porfirio melino.
+
+In porfirio confice pelles sicut supra, et mitte in alumen: deinde ablutas tingue melino, postea tempera coccum, et ipsam temperationem in ipsas pelles, quas tinxeras, mitte; et confice sicut supra docuimus.
+
+## 235\. De prima tinctione pandii.
+
+In prima tinctione pandii, confice, eodem modo quo predictum est, pelles, et alumina: post aluminationem, abluta stipterea, tingue eas in vitriolo: post tinctionem, lava illas bene. Deinde compone vermiculum, sicut supra docuimus; ex ipsius coctionis iotta mitte in folles, et confice more solito; et refusa confectione, tingue pecorinas pelles, et lotas desicca.
+
+## 236\. De secunda tinctione.
+
+In secunda vero pandii tinctione, confectis pellibus, sicut supra, et tinctis cum vitriolo, atque lotis, mitte ex iotta luzæ in folles; et confice per 4. dies.
+
+## 237\. De tercia.
+
+In tercia tinctione pandii, confectis pellibus, ut prediximus, tolle iottam coccineam, et mittes in folles: exagita, et confice, sicut supra.
+
+## 238\. (Item, de pandio.)
+
+Sume corallum tenue, boni coloris, rubeum, marinum, tritum, libras 2. lacca coquinum libras 1. et calcitarin ʒ. 2. trita omnia commisce, et coque cum urina; et, quando volueris tinguere, mitte ex ipsa iotta, que est confecta in urina dispumata, in folles; et confice per 2. dies. Post hoc lava bene, et desicca.
+
+## 239\. Item.
+
+Tolle lubiam, et bene pisatam coque in cacabo cum urina, et addito modico alumine commisce, et dimitte refrigidare. Deinde colatam ipsam iottam mitte in folles confectarum pellium, et exagita bene, et confice die una, et lotas desicca. Post hoc sume ex iotta luzæ ʒ. 1. et luzacin ʒ. 1. et commisce, et unge faciem pellium.
+
+## 240\. Tinctio prassina ossuum, cornuum, et lignorum.
+
+Rade primum quodlibet ex omnibus his, et mitte in alumen Asianum, et ossa diebus 12. cornu autem alumina diebus 8. lignum vero diebus 4. Deinde coque luzam bene, et, dum fervet, depone in illam quodlibet horum; et, dum refrigidaverit, tempera lulacerin, et depone in illud, et dimitte diebus 5. Postea eice, et lava.
+
+## 241\. De veneti tinctione eorundem.
+
+In veneti autem tinctione alumina quodvis horum, sicut prediximus; et, facto lulacerin, mitte in illo, si os fuerit, 10. diebus, si vero cornu, diebus 8. si autem lignum fuerit, diebus quatuor.
+
+## 242\. De melina tinctione eorundem.
+
+In tinctione vero melina, que tinguenda sint, sicut supra, alumina; et coque luzam cum urina dispumata; et, cum bullierit, depone in illam.
+
+## 243\. De colore cinnabarin.
+
+Si autem colorem cinnabærin similem vis facere, sume sinopidem coctam partes 2. siricum partem 1. commisce, et tempera cum aqua.
+
+## 244\. De cebellino, quomodo fiat.
+
+Cebellinum ita fiet. Tolle lignum cerrinum aut deirinum, et munda ramos ejus ex cortice; et faciem ejus leviter dola, et cooperi illud in loco cenoso annis 20. Postea ejectum de ceno dimitte in umbram siccare anno 1. et labora ex eo quod vis.
+
+## 245\. De inauratione ferri.
+
+Si ferrum deaurare volueris, sume calcitarin, et alumen Asianum, equis ponderibus; salis autem et draganti tantam quantitatem, que compenset, tota trita, et commisce hec omnia cum aqua, vel aceto acerrimo; mittens in cacabum eneum; et bulliat una hora diei. Post extersum et pumicatum diligenter ferrum, cum hac confectione perunge, in eo loco ubi volueris deaurare; et, cum modicum in hac confectione patieris, terge ferrum, et habebit colorem eneum. Deinde lima cum lapide onichino ferrum; et, si limando perdit colorem, tunc iterum tingue; si vero inauraturam comprehendere voluerit, commisce cum medicamine equaliter, et unge sicut prius.
+
+De abluta tauratica in qualem vis pannum facere, et sic lixandum est cum onichino lixa.
+
+## 246\. De petalo aureo.
+
+Lineleon ʒ. 5. galbani ʒ. 2. terebentinæ ʒ. 1. picis Spanæ ʒ. 1. Istas 3. species, (_id est_, galba- 
+
+num, terebentinam, picem Spanam) solve in unum cum modico lineleon. Postea vero cum orientali croco ʒ. 2. libani ʒ. 3. floris populi primotici ʒ. 2. vernicis ʒ. 2. lineleon et uricella commisce, et ad mosana colas. Postquam tota simul fervent misce ibi de gumma cerasii ʒ. 1. Hec omnia simul commixta bullire facias in lineleon mensura 3. unciarum: post coctionem autem cola per lintheum, et misce species supradictas (_id est_, galbanum, terebentinum, et picem Spanam) et, si quid vitium postea habuerit, quo siccari non possit, addito masticæ quantum volueris, aut ʒ. scilicet, aut dimidiam, emendabitur.
+
+## 247\. Lucida quomodo fiant super colores.
+
+Lineleon ʒ. 3. terebentinæ ʒ. 3. galbani ǯ. 2. liricæ ʒ. 2. libani ʒ. 3. mirræ ʒ. 3. masticæ ʒ. 3. vernicis ʒ. 1. gummæ cerasii ʒ. 2. flores populi ʒ. 2. gummæ amigdalæ ʒ. 3. resina sapini ʒ. 2. Hec omnia pisanda sunt, et crib(r)anda; et cum supradicto lineleon in gabbata auricalci, mittendaque in furnum calidum, ubi sine flamma coquentur, eo modo ut foras non exeant. Cocta autem colanda sunt cum lintheo mundo; et, si rara venerint, decoque ea usque dum spissa fiant. Postea vero quelibet opera, vel picta, vel sculpta, volueris, illucidare poteris, lucidata autem siccare.
+
+## 248\. De crisografia.
+
+Aurum obrizum lima tenui limâ, et in mortarium porfireticum mitte acetum acerrimum, et teres pariter, et lavas; quamdiu nigrum fuerit, effundes, tunc demum mittes aut salis granum, aut nitrum, et sic solvitur. Postea scribe, et litteras polies. Sic omnia metalla solvuntur.
+
+## 249\. Aureis litteris scribere.
+
+Sume laminas aureas, et argenteas, et solve in mortario, terendo cum sale Greco vel nitro, donec non compareat. Deinde mittes aquam, et infundes, et iterum mittes sal, et ablues: et, ubi purum aurum remanet, adicies eris floris modicum, et fel taurinum, et tere simul, et scribe: litteras poli. Si vero vis ut diffusum sit, et abundantius scribere volueris, tere separatim auripigmenti scissilis 4. partes, elidrii partem 1. et, cum cribraveris illud, ex eo tantum quantum equale sit auro contere pariter; et scribe, et, cum siccaverit, litteras poli. Ex hoc autem et in vitro, et in marmore pingere poteris, eodem modo quo scribis cum auro.
+
+## 250\. De inauratione pellis.
+
+Tolle pellem rubram, et pumica eam diligenter; deinde lava eam aqua tepida, quoadusque limpida aqua egrediatur: postea tensam in cantario limniza usque 4. vices: deinde tende eam in axem que habeat superficiem mundam, et cum ligno mundo co-equa eam diligenter: postquam autem desiccata fuerit, tolle albuginem ovi, et spongiam mundam tingue in ipsam lacrimam, et induc semel per ordinem. Si autem non sufficit, iterum ungues; et, cum siccata fuerit, pone petalum, deinde tingue spongiam in aqua, et preme petalum ad pellem; et, cum siccata fuerit, poli. Deinde cum pelle munda desuper frica, et iterum poli, et similiter dragantum inauratur, ita tamen ut mittas in aquam in noctem, quoadusque solvatur.
+
+## 251\. Confectio maltæ.
+
+Olei libras 8. casei libras 8. interiora ovorum 30. albuminum z. calcis mundæ modium dimidium, lini mundi minutatim incisi libram.
+
+## 252\. De ere albo.
+
+Mitte es album in fundum caluculi, et in summo vitrum pone, et sic confla illud. Conflatum autem cum fundere volueris, fuscello remove vitrum, et non perdet colorem.
+
+## 253\. De lacca, quomodo laboratur ad pingendum ligna, seu parietem.
+
 ...
