@@ -1628,4 +1628,271 @@ Duas partes axungiæ, et tertiam resinæ, et limaturam stanni pariter mixta soli
 
 Tabula cupri, que 10. pollices habeat in latitudine, et totidem in longitudine, denario auri deaurari potest.
 
-...
+## 263\. De vivo argento.
+
+Si vivum argentum adheserit operi aureo, quod non potest in ignem mittere, accipe urinam hominis, et misce simul atramentum et salem, et fac spissam pinguedinem, et inde mitte super vivum argentum, quod adheserit (_vel_ adhesit) aureo operi, et dimitte aliquandiu desuper; tuncque exterge, et non apparebit. Deinde ferro defrica, ut scis.
+
+Accipe duorum denariorum et oboli pensum de purissimo cupro, et 1. de argento, simulque funde; et post, tunde tenuissimum quantum potes, et post arde petram vini diligenter; et, cum volueris solidare, accipe inde, et distempera cum aqua, tamen spissum; tunc incide minutissime cuprum illum tenuissimum, et mitte inter juncturam, et super eam quam vis solidare; et tunc superadde illam spissam pinguedinem, quam fecisti de aqua et petra vini; et tunc in ignem pone, et suffla.
+
+Accipe plurimum atramenti, et valde arde; et de sale bono, ita ut duæ partes sint salis, et tertia atramenti; et post, misce simul, et distempera cum optimo aceto, et tunc lava bene deauratum opus, et lini ex omni parte de supradicta pulte; et post, mitte in ignem, et calefac usque quo rubeum fiat, et post, extingue in eneo vase, et tunc de seta exterge. Si autem prima vice non defecerit, adhibe sal, et reitera.
+
+## 264\. De sagitta plumbea, ad incendendum.
+
+Semel, vel secundo, vel tertio, solves plumbum, et mundas ex omni sorditie, et dimittas illud quoadusque colligat v. n. n. Post hæc adducis lenticulam, et pisas utiliter, et infunde aceto, et spumam quam emittit tolles, et intingue sagittam; et ex ipsa spuma acue sagittam in plumbo, veluti in cote, donec elimpidetur; et ex eo plumbo ipsa sagitta perungatur.
+
+## 265\. Aliud toxicum unde sagitta in pugna toxicatur.
+
+Sudorem equi, quem in dextera parte inter coxas habuerit, sume, et intingue sagittam. Hoc expertum est utiliter.
+
+## 266\. De sagitta, quæ ignem emittit.
+
+Sagitta ad emittendum ignem, tribulus es pertusus. Confectio autem ignis talis est. Naptæ ʒ. 1. stupi solidi 2. picis conditæ solidi 4. sulfuris vivi mundæ guttæ solidus 1.* semis, salis marini solidus 1. olei ex olivis solidus 1. visci asperi solidus 1. lapidis gagatis solidus 1. saponis ex oleo solidus 1. Ista tollens, et mittens in mortario marmoreo, cum tritorio ferreo teres utiliter. Primum quam mittas naptam, stupium, et picem, et climatidam, et sulfur vivum, et gagatem, et sal marinum tere subtiliter. Post hoc mittes oleum ex olivis, et saponem, et lac mulieris, solidum 1. et teres subtiliter omnia in unum, nucis interiora 4. tere diligenter, et compones. Lac autem pingue sit.
+
+Hec est autem tinctio sagitte: stupam lini mollem intingue, et tolle funiculum subtilem, qualem possit capere ipsa pertusa: de reliquo perunge sagittam, sicut provideris; et, cum tetenderis arcum, incendes igni, et continuo dimittes sagittam ubi volueris incendium sagittandum.
+
+*) ? _if_ "climatidos" _is not omitted here._
+
+## 267\. Alia brevis.
+
+Alia sagitta, que ex modica compositione ignem emittit, sulfur vivum, colofonia, equis ponderibus, oleum ex nuce; conficies et disponas, sicut prediximus.
+
+## 268\. Alia.
+
+Sagitta in toxo palestra venenata, ut non incendat canale. Vesti ipsum canale ex ere. In sagitta vero tribulo utere secundum priorem compositionem, et petra focaria, que ignem emittit, pertusa, non equata, sed aspera, quo possit inherere ipsa compositio.
+
+## 269\. De rapidissimo compositione.
+
+Ex sulfure libram 1. naptæ libram 1. stupii libram 1. climatida libram 1. pice condita libram 1. lactis mulieris ʒ. 1. olei porcini ʒ. 1. lapidis gagatis ʒ. 1. resinæ conditæ libram 1. sulfuris vivi libram 1. picis liquidæ ʒ. 1. semis, cedera ʒ. 1. olei ex olivis ʒ. 1. sulfuris cocti ʒ. 1. auripigmenti ʒ. 3. nitri ʒ. semis: omnia collecta arida diutius tere, et post hæc tollens omnia humida commisces: tere diligenter, et compositis utere, perungens petram, et omnes pertusas ejus replens; et, imponens in petrariam, immittas ignem, et dimittes celeriter.
+
+## 270\. Compositio arietis ad muros.
+
+Anteriores pedes 3. facias cubitorum 5. medios cubitorum 4. posteriores cubitorum 3. Rotæ autem altæ unius semis palmæ; gressæ 4. z. circinas, et in medio pertundis, secas columnas, et in minutis rotis, usque ad 4. unciarum co-operiens, et super connexionem facies, et configes cum meura astringens arietes, et contexes funibus, proteges eum corio, et super filtris co-operies, et super filtra, coria; et super coria, arenam ʒ. 4. et super arenam, lanam; ut non moveatur ipsa arena, et desuper coria. Tales autem habeant ipsæ columnæ cardines ut non moveantur, quia configuntur intus; et rotis suppositoria suppones; et ipso ingenio conjungas muro, et labores indubitantur.
+
+## 271\. Quomodo debeat zelum arietis incendere.
+
+Compones cacabum non coctum compositione de damie, ignem apponens, et in ipso zelo mittas, et incendas ipsa coria, et lanam. Post hoc remanet arena, et ipsa confixa, eo quod non ardeat: deinde lapidas per moles ipsam arenam; compones iterum similem cacabum ex ipsa compositione jactas ipsum zelum; et, si propter multitudinem arenæ non ardet, jacta alios lapides, et compone alium cacabum, et jacta.
+
+## 272\. De 4. formis specierum.
+
+Composito 4. formis specierum plus utilis ad incendendum, naptæ, picis, stupii, climatidos.
+
+## 273\. Compositio naptæ hæc est.
+
+Naptæ scl. purgamenta lini, sive amurca olivæ, naptæ mundissimæ libram 1. sulfuris vivi libras 2. milino ʒ. 4. salis marini penso, solidos 4. colofoniæ mundæ liquatæ ʒ. 2. solidum 1. peculæ solidos 4. aureis 6. picis duræ ʒ. 1. olei terebintini dracontoides ʒ. 1.
+
+## 274\. Compositio olei terebintini hæc est.
+
+Olei communis partem 1. olei laurini partem 1. solidos 2. cedercæ cedrinæ solidos 2. picis cipressinæ solidos 2. masticæ solidum 1. lapidis gagatis solidum 1.
+
+## 275\. Hec est compositio naptæ 12. specierum. Confectio autem (ta)lis est.
+
+Teres omnia arida, humida commiscens postea diligenter cum pulvere aridorum, et defricas omnia bene: post hoc repones in vase testeo bituminato, et sic dimitte 2. dies, aut 3. et post hoc, tollens, calefacies modicum, ut bulliat, et dimitte residere.
+
+## 276\. Confectio picis hæc est.
+
+Picis aridæ ʒ. 1. denar. 1. sulfuris vivi denar. 1. resinæ denar. 1. iscira (alii dicunt florem aquæ, alii oleum aquæ, alii celidonia, Alexandri autem, amorem aquæ. Nascitur autem in aqua ubi alba terra est, terra rusea, terra nigra, exeunte autem de aqua fiet milinii super aquam in circuitu exitus aquarum). Est autem aqua gravis, et egrota pro terra quæ florem generat. Sic autem colligetur. A Martio vel Aprili mense, si est calidus locus, usque ad Octobrem, colligitur. Tolles autem mollissimam lanam lotam, et inpones super aquam, et exprimes in vase vitreo, habente pertusum modicissimum, veluti acu factum; quem, cera clausum, pones ad solem diebus 10. ac noctibus, immobilem; et post hoc, ablata cera, aperies ipsum pertusum, supposita lana munda deliquatur aqua, et remanet amor aquæ. Tunc de amore aquæ mittes ʒ. 1. balsami mundi ʒ. 1. aurei 6. oleum silicum (alii oleum ricinum dicunt, alii lancidis, alii vero viscum) solidum 1. picis cipressinæ solidum 1. aureas 12. picis pineæ solidum 1. semis, saponis ex oleo solidos 2. nitri solidum 1. selinistreo (alii rodica, alii pancii, alii rusticum, alii gumma, alii matican, alii thimon, alii tricas, alii tricoselinon; nascitur autem in aqua velut apium, et in parietibus, ubi calx est, et dicitur herba capillatia) arida trita ʒ. 1. alochias (alii sticis, alii calmidam, alii cathan, alii ageropa, alii marcianin, Alexandrini autem Scaramandia, isauri papati herba est subtilis, ramosa, spina involuta, albidiante; multi exinde accendunt candelas: nascitur autem in locis petrosis et asperis; folia ejus, sicut mirtæ, spissa) aridæ tritæ solidos 4. denar. 1. Robaticis (alii exmilax, alii telacion, alii quisnasbatu, alii cucudera: nascitur sicut rubus, fortiores habens ramos, et spissus est; fructus vero ejus est similis zizifæ, plus rotundas, pro quo vocaverunt gratiles, (?) zizifa agrestis; habet intus grana triangula pilosa:) ipsa grana siccata et trita solidos (_blank in MS._): omnia arida, trita semotim; deinde commixtis cum reliquis, adde zizea solidos 2. et, terens omnia in unum, commisce, et repone in vase testeo bituminato; et, cum bullierit, lento igni semel, fiet compositio sicut pix.
+
+## 277\. Compositio stupii hæc est.
+
+Lac ferri ⍮. denar. 3. sulfuris vivi ⍮. 1. aureos 12. aluminis Persiatici denar. 3. gumma de atrinia solidum 1. amoris aquæ libram 1. balsami ⍮ 4. oleo ex olivis denar. 1. lapidis gagatis, aureas 4. semis tigea aureas 2. grana 3. cedrea de cedro pingue solidos 7. aureas 2. sulfuris melini ʒ. 3. olei laurini aureas 12. resinæ mundæ terebintinæ melinæ aureas 4. picis de pino frigidæ ʒ. 1. apallis, (alii ramitan, alii cordenan, alii daucallida, alii maragnin, Egiptii fondella, pagani tinctio, alii polligalla; herba est alta, si multum usque ad geniculum, folia simil(i)a mirti, plus majora; alia est major ticior, alia autem subtilior, ticior minor herba est, unius palmi altitudinis; majorem autem, ubicunque rumperis, lac exiet, rami ejus rotundi, folia spissa,) lactis ejus collecti et sicci aureas 4. semisses, brachia, (alii tutumallum, alii da...* alii leptugalia, alii polligala, alii leptotui; similis est enim prioris, et non sic alta, prior enim in principio ramos eicit, ista vero sursum ramos habet rotundos, folia subtilia, et plus rotunda quam prior, propter quod vocaverunt eam Ethiopes surganam;) ex ipsa collecta, et desiccata, et trita, ʒ. 1. aurea 1. semis; oia (alii laucia, alii sehum marinum, alii briania, alii spumam marinam, alii eleoboron, alii mag(un)tiani, Egiptii drautia; nascitur in omnibus locis, plus autem in durissimis, fungus est rotundus, pagani vocant amanita, desiccatum ubicunque percusseris pulverem levat mulmum, ideo vocaverunt eam grirovagam, rotundus nascitur totus in terra; qui ut siccus conculcatur, aut percutitur, exiet pulvis, et reliquum durum corium remanet, quasi ovum decoctum. Ex ipsis fungis, cum corio et pulvere, 7. elleborum nigrum siccatum, et tritum, solidum 1. gumma de arbore elanton (quod (_sic_) est abies) ⍮ 1. Omnia ista trita, arida, et in pulverem redacta commisce diligenter cum humidis, et repone in vase fictili bituminato, et bulliat lento igni.
+
+*) Cut off by the binder.
+
+## 278\. Compositio climatidos hæc est.
+
+Sarmenti vitis agrestis florem desiccatum et tritum solidos 4. aureas 3. lac ferri ʒ. 1. naptæ ʒ. 1. sulfuris vivi ʒ. 1. semis, resinæ solidos 2. pisas olimpias solidos 2. omnia simul commiscens repones in vase testeo bituminato, et semel bulliat lento igni, sopitum est.
+
+Commixtio 4. specierum supradictarum (_id est_, naptæ, stupii, picis, climatidos) plus utilis ad in(cen)dendum.
+
+Naptæ bonæ et humidæ libras 2. climatidos libr. 2. Commixta omnia in cacabo eneo, et decocta lento igni, inples pinnatam crudam de catia erea; hoc argentum plus est utile ad incendendum.
+
+## 279\. Remedium ad extinguendum.
+
+Si arserit ignis, necesse est ex arena et sulfure extinguatur; si plus arserit, arenam, urina infusam, immittes.
+
+## 280\. Quomodo fiat sapo ex oleo, vel sepo.
+
+Crati baticie de minutulis virgulis, sive spisso et forti colatorio, supersterne bene arsum cinerem de bonis lignis; et superfunde leviter aquam calefactam, ut guttatim transeat; et lexivam subtus mundo in vase recipe, et secundo vel tertio per eundem cinerem cola, ut fortis lexiva fiat, et colorata; et hæc est prima lexiva saponarii, quam, cum bene depuraverit, mitte coquere; et, cum diu bullierit et spissari ceperit, addito oleo sufficienti, move optime. Quod si cum calce facere volueris, mitte ibi modicum calcis bonæ; et si sine calce esse volueris, sola predicta bullire permitte, donec excocta sit lexiva, et in spissitudine redacta, et post in loco apto refrigerare permitte quicquid ibi lexivæ, vel aquosum, remansit: que depuratio secunda lexiva saponarii dicitur. Postea, per 2. vel 3. vel 4. dies, spatula exagita, ut bene cohereat et exaquetur, repone usui. Si vero de sepo facere volueris, eadem erit actio, sed, loco olei, mittes sepum pecorinum bene contusum; et adicies de simila, ad estimationem, et coquentur ad spissitudinem, ut predictum est. In secunda vero lexiva, quam dixi, mittes sal, et coques donec exsiccetur, et hoc erit affronitrum ad solidaturam.
+
+## 281\. Color albus.
+
+Stannum libras 10. plumbum libram 1. in pulverem redactam, alumen Asianum libras 10. arena citrina libras 8. et semis; et fac fornacem, et da ei ignem; et post coctionem frange, et cribella istam cocturam; et postea adjunge arenam similiter cribellatam libras 9. et semis, et postea plumbum libras 6. et semis, et 5. libras de stanno similiter, sicut scripsimus.
+
+## 282\. De amido.
+
+Amidum medulla est de frumento media libræ mixta in aqua calida 5. uncias, et mediam de vitreo safiro, et aquam quantum sufficit.
+
+## 283\. De colore veneti.
+
+Color venetus. Alumen scissum ⍮. 10. et arene ⍮. 5. et lapides albos et rotundos 4. uncias, arsa et cribellata, et 4. uncias de plumbo, et unam ⍮. et mediam, et argenteos 15.
+
+## 284\. De lapide Egrippo.
+
+Si inveneris lapidem de terra de Egrippo, inmitte 4. libras de plumbo, arsum et cribellatum; et de terra purpurea libram 1. mixtam in ipsa confectione, et de petra de Corintho mitte libras 2. et de plumbo 1. et de terra purpurea libram 1.
+
+## 285\. Compositio sisami.
+
+Sisami compositio. Mel album et purum, in stannato ad modicum ignem appositum, incessanter spatula exagita, intercisis vicibus ad ignem, et ab igne, depositum; et spatiosius exagitatum, iterum atque iterum igni appone et depone, sine intermissione exagitans, quoad spissum fiat, et conglutinosum. Cumque satis spissatum fuerit, super marmor effusum paulisper refrigerare permitte; post, ad clavum ferreum suspensum, et crebro et minutule extensum, et replicatum, donec albescat, ut oportet. Tunc retortum et formatum super marmor colloca, et usui ministra.
+
+## 286\. De zuchara.
+
+Simili autem actione, et coctione, de zuchara in stannato, pauca aqua infusa, et, cum bullierit, dispumata, et bene colata colatorio; et sic, adhibitis quibus scis speciebus, incessanti agitatione ad spissitudinem ducta, in subuncto modico oleo marmore expanse diffundes, et refrigeratis marmoricis caute, ad manus sejungens a marmore, usui reservabis.
+
+## 287\. De penidiade.
+
+Penidias vero modo sisami post dispumationem et colaturam zucharæ, sed sine exagitatione, percoctas ad clavum, ut dictum est, malaxando, conformabis, concidendo forficibus.
+
+## 288\. Azur quomodo molatur.
+
+Azur mole cum sapone; post lava bene aqua.
+
+Hinc sextam placuit fingi, siliquamque vocari;  
+Ultimus est calcus, ciceris duo granula pensans.
+
+|              |       |
+|--------------|-------|
+| ag.          | [SVG] |
+| berch.       | [SVG] |
+| cen.         | [SVG] |
+| derhu.       | [SVG] |
+| eg.          | [SVG] |
+| feu.         | [SVG] |
+| genue.       | [SVG] |
+| he.          | [SVG] |
+| cer.         | [SVG] |
+| la...*       | [SVG] |
+| man.         | [SVG] |
+| net.         | [SVG] |
+| os.          | [SVG] |
+| perd.        | [SVG] |
+| cui.         | [SVG] |
+| rat.         | [SVG] |
+| sigil.       | [SVG] |
+| tir.         | [SVG] |
+| ur.          | [SVG] |
+| xen.         | [SVG] |
+| uir.         | [SVG] |
+| super su(nt) | [SVG] |
+
+*) The margin of the M. is cut.
+
+|       |                                |
+|-------|--------------------------------|
+| [SVG] | Assis 12.                      |
+| [SVG] | Deunx 11.                      |
+| [SVG] | Decunx 10.                     |
+| [SVG] | Dodrans 9.                     |
+| [SVG] | Bisse 8.                       |
+| [SVG] | Septunx.                       |
+| [SVG] | Semis.                         |
+| [SVG] | Quincunx.                      |
+| [SVG] | Triens.                        |
+| [SVG] | Quadrans.                      |
+| [SVG] | Sextans.                       |
+| [SVG] | Uncia.                         |
+| [SVG] | Dimidius obolus.               |
+| [SVG] | Plenus obolus.                 |
+| [SVG] | Duo oboli.                     |
+| [SVG] | Tres oboli.                    |
+| [SVG] | Quatuor oboli.                 |
+| [SVG] | Quinque oboli.                 |
+| [SVG] | Oboli 6. significant denarium. |
+| [SVG] | Siliquæ 8. H.                  |
+| [SVG] | Solidum unum. H.               |
+| [SVG] | Dragma 1. uncia.               |
+| [SVG] | Medius solidus. B.             |
+
+Duæ partes cineris quercini, cum tertia calcis querci, cum glutinentur bene, agitate cum aqua frigida: post, totum pones in cophino fortiter impressum, faciens desuper aquam locum ne discurrat, quo pones aquam frigidam, bis et ter, secundum consumptionem suppositi cineris, et calcis. Que non cito, sed sequenti die manabit, cui suppones folia lauri, vel alia congrua, ut postea fluant in aliud vas, et hoc est capitellum. Si vero saponem perficere volueris de priori aqua secundam pones; qua decursa, pones et tertiam, que bona erit quousque alba fiat; post, liquefacies sevum, colabis, et colatum, et superius si opus est, purgatum, cum ultima bullies; quo spissante secundum pones, et eodem modo de prima, aut si per unum diem oculos populi tritos infuderis, et post, expressos ejiceris, sapo rubeus et melior erit; et hic est Gallicus sapo, et spaterenta, _id est_, acutus.
+
+|    |    |    |    |    |
+|----|----|----|----|----|
+| 1  | 2  | 3  | 4  | 5  |
+| 2  | 4  | 6  | 8  | 10 |
+| 3  | 6  | 9  | 12 | 15 |
+| 4  | 8  | 12 | 16 | 20 |
+| 5  | 10 | 15 | 20 | 25 |
+| 6  | 12 | 18 | 24 | 30 |
+| 7  | 14 | 21 | 28 | 35 |
+| 8  | 16 | 24 | 32 | 40 |
+| 9  | 18 | 27 | 36 | 45 |
+| 10 | 20 | 30 | 40 | 50 |
+
+(_A written leaf has been torn out here._)
+
+Stagni ⍮. 9. c(u)pri ⍮. ar(genti) 6. ⍮. simul funde, per figuram arragab. ad libitum tuum manabit, et stabit fons. Per eandem, ciphus potum aut reddet aut retinet.
+
+Ex figura .a. si prius potaverint boves, sufficiet et bobus et equis. Si prius equi, deficiet et bobus et equis.
+
+Ex eadem a dolio in alveum exibit vinum, donec impleat alveum: impleto alveo, nil exibit a dolio.
+
+Idem in lucerna et oleo per arenam et clavum et aquam a domuncula exibit fantasma et redibit. Per ignem et aquam subclusis ventilabit coridon.
+
+Per figuram .a. ablata lancea, exibunt milites a castro, et intrabunt stridente lancea.
+
+Ovum in calce, calcem in puteo. Quatuor circulis imis inter alios, exposita diametrorum formatione, volventibus, vaseque interiore suspenso, quocunque modo volvantur, nil effundetur.
+
+[Fig]
+
+|                 |       |          |
+|-----------------|-------|----------|
+| alpha           | [SVG] | a        |
+| beta _vel_ uita | [SVG] | b        |
+| gamma           | [SVG] | g        |
+| delta           | [SVG] | d        |
+| ebrachi         | [SVG] | e        |
+| zita            | [SVG] | z        |
+| ita             | [SVG] | i longum |
+| (t)hita.*       | [SVG] | th       |
+| iota.           | [SVG] | i        |
+| cappa           | [SVG] |          |
+| lappa           | [SVG] |          |
+| mi              | [SVG] |          |
+| ni              | [SVG] |          |
+| xi              | [SVG] |          |
+| brachi          | [SVG] |          |
+| pi              | [SVG] |          |
+| ro              | [SVG] |          |
+| (sig)ma* tau    | [SVG] |          |
+| uui             | [SVG] |          |
+| phi             | [SVG] | f        |
+| chi             | [SVG] | ch       |
+| psi             | [SVG] | ps       |
+| oto             | [SVG] | o        |
+| maga            | [SVG] | magnum   |
+
+*) Margin of the MS. cut.
+
+*) Margin of the MS. cut.
+
+## 289\. Ad vitrum incidendum.
+
+Cum acri urtica ubera capræ Saraceni acriter urticant, et palmis tundunt, ut in ea lac descendat. Postea lac in vas emulgitur, et in eo, per unam noctem, vitrum cum ferro ponitur, cum quo debet incidi; temperabitur in ipso lacte ferrum, aut in lotio parvæ puellæ rufæ, quod excipitur ante ortum solis. At vero lac, cum necesse fuerit, recalefiat eadem calitudine, qua fuit primitus mulsum, et in eo semper vitrum calefiat, donec molle fiat, et sic incidatur. Sic et aliæ petræ. Capra vero hedera pascatur.
+
+## 290\. Ad cristallum comprimendum in figuram.
+
+Sume hircum qui nunquam coierit, et pone in cuppa per tres dies, quousque totum digerat quod in ventre habet. Postea hederam da ei edere per 4. dies; post hæc purgabis dolium, ut urinam ejus accipias. Post hæc occides hircum, et sanguinem ejus urinæ commiscebis; et sic lapidem impone per unam noctem, et post hæc, vel comprimes in figuram, vel sculpes si vis. Ut pulchrum facias, fac tibi tabulam plumbeam, et super hanc asperges album silicem contritum, ut piper, et lapidem desuper fricabis, quoadusque asperitatem lenies. Postea, liga de eodem silice contrito in laneo panno, et inde fricabis angulos quos prius aptare nequivisti in lamina. Deinde, ut pristinam lucem recipiat, fac tibi oleum de nucibus, et inde fricabis. Adhuc debes eum linire panno cerato, ut splendeat, et sudare desinat.
+
+## 291\. Inauratio ferri.
+
+Eris limatura teritur cum aceto, in hereo mortario, cum sale et alumine, usque ad mellis spissitudinem. Aliqui pro aceto, aqua utuntur. Deinde ferrum bene purgatum, et leviter calefactum, hac mixtura inunguitur, et fricatur, donec colorem heris accipiat. Post hæc aqua abluitur, et tergitur, et sicut hes, vel argentum, deauratur; et calefactum, recedente vivo argento: sicut mos est, ut splendorem accipiat, ferro defricatur.
+
+## 292\. Aliter.
+
+Alumen rotundum et salvandum, quod salis gemma vocatur, et calcantum, ex aceto acerrimo teruntur in hereo mortario. Ex his ferrum purgatum, cum ferura, vel alia qualibet levi hastula, defricatur; et, cum heris colorem habuerit, retergitur et deauratur, ac deinde, exfumigato vivo argento, aqua refrigeratur. Usque ad splendorem, ferro valde plano, et limpido, defricatur.
+
+## 293\. De ebore.
+
+Quod si volueris ebur dirigere, vel carvare, in hac supradicta confectione mittatur tribus diebus et noctibus. Hoc facto, cavabis lignum quali modo volueris; deinde, posito ebore in cavatura, diriges illud, et plicabis ad placitum.
+
+Accipe calcis vivæ duas partes, tegulæ tritæ unam partem, olei unam partem, stuppæ sissæ partem unam: distempera hæc omnia lesxivâ factâ de cortice hulmi.
+
+**Finis.**
+
+(_On the back of this last leaf is written in nearly a cotemporary hand the following._)
+
+|            |    |                                  |
+|------------|----|----------------------------------|
+| Cinnabarin | 1. | (_i. e._) Vermilio.                |
+| Jarin      | 1. | Flos eris.                       |
+| Psimithii  | 1. | Flos plumbi.                     |
+| Magra      | 1. | Sinopidum, vel Bolus Armeniacus. |
