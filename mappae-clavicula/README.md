@@ -1,6 +1,6 @@
 ## Mappæ Clavicula.
 
-[Latin - Plain Text](full-text-latin.md)  
+[Latin - Plain Text](full-text-latin.md) | [Latin - Plain Text](full-text-latin-gfm.md)  
 [Latin - PDF](https://cdn.solaranamnesis.com/ThomasPhillipps/Mappae/phillipps_mappae_1847_latin.pdf) | [Biolinum](https://cdn.solaranamnesis.com/ThomasPhillipps/Mappae/phillipps_mappae_1847_latin_biolinum.pdf) | [Atkinson](https://cdn.solaranamnesis.com/ThomasPhillipps/Mappae/phillipps_mappae_1847_latin_atkinson.pdf) | [LModern](https://cdn.solaranamnesis.com/ThomasPhillipps/Mappae/phillipps_mappae_1847_latin_lmodern.pdf) | [Custom01](https://cdn.solaranamnesis.com/ThomasPhillipps/Mappae/phillipps_mappae_1847_latin_custom01.pdf) | [Custom02](https://cdn.solaranamnesis.com/ThomasPhillipps/Mappae/phillipps_mappae_1847_latin_custom02.pdf)  
 English - Plain Text  
 English - PDF  
